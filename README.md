@@ -18,7 +18,7 @@ There are several different filetypes for the book:
 * XeLaTex source file with PDFs
 * EPUB
 
-Compiling the LaTeX file requires XeLaTeX and a few free fonts -- [Linux Libertine][3] and [Audimat][4]. You can compile the document with regular pdflatex if you do not wish to use custom fonts.
+Compiling the LaTeX file requires XeLaTeX and a few free fonts -- [Linux Libertine][3] and [Audimat][4]. You can compile the document with regular pdflatex if you do not wish to use custom fonts. The TeX file can produce both PDF versions -- for print and for screens.
 
 The EPUB version was created from the markdown file with Ulysses III. You should be able to produce your own EPUB or Mobi file using any similar tool.
 

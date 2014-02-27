@@ -2,7 +2,7 @@ Who Goes There? by John W. Campbell
 ===========================
 Copyright © 1938 by John W. Campbell Jr.
 
-![](https://raw2.github.com/roguephysicist/who_goes_there/cover.jpg)
+![](https://raw.github.com/roguephysicist/who_goes_there/master/cover.jpg)
 
 Intro
 ------

@@ -79,7 +79,7 @@ It was easy for man — or _thing_ — to get lost in ten paces.
 
 "The magnesium metal of the ship caught, of course. The glow of the bomb flared and died, then it began to flare again. We ran back to the tractor, and gradually the glare built up. From where we were we could see the whole ice-field illuminated from beneath with an unbearable light; the ship's shadow was a great, dark cone reaching off toward the north, where the twilight was just about gone. For a moment it lasted, and we counted three other shadow-things that might have been other — passengers — frozen there. Then the ice was crashing down and against the ship.
 
-"That's why I told you about that place. The wind sweeping down from the Pole was at our backs. Steam and hydrogen flame were torn away in white ice-fog; the flaming heat under the ice there was yanked away toward the Antarctice Ocean before it touched us. Otherwise we wouldn't have come back, even with the shelter of that granite ridge that stopped the light.
+"That's why I told you about that place. The wind sweeping down from the Pole was at our backs. Steam and hydrogen flame were torn away in white ice-fog; the flaming heat under the ice there was yanked away toward the Antarctic Ocean before it touched us. Otherwise we wouldn't have come back, even with the shelter of that granite ridge that stopped the light.
 
 "Somehow in the blinding inferno we could see great hunched things, black bulks glowing, even so. They shed even the furious incandescence of the magnesium for a time. Those must have been the engines, we knew. Secrets going in blazing glory — secrets that might have given Man the planets. Mysterious things that could lift and hurl that ship-and had soaked in the force of the Earth's magnetic field. I saw Norris' mouth move, and ducked. I couldn't hear him.
 
@@ -249,7 +249,7 @@ Blair came up from the nightmare-haunted depths of sleep abruptly. Connant's fac
 
 Connant straightened up. "Get up — and get a lift on. Your damned animal's escaped."
 
-"Escaped — what!" Chief Pilot Van Walls's buull voice roared out with a volume that shook the walls. Down the communication tunnels other voices yelled suddenly. The dozen inhabitants of Paradise House tumbled in abruptly, Barclay, stocky and bulbous in long woolen underwear, carrying a fire extinguisher.
+"Escaped — what!" Chief Pilot Van Walls's bull voice roared out with a volume that shook the walls. Down the communication tunnels other voices yelled suddenly. The dozen inhabitants of Paradise House tumbled in abruptly, Barclay, stocky and bulbous in long woolen underwear, carrying a fire extinguisher.
 
 "What the hell's the matter?" Barclay demanded.
 
@@ -291,7 +291,7 @@ McReady wedged men out of his way and drove down the narrow corridor packed with
 
 Barclay found the cable in the electrical cache in the tunnel wall. In a half minute he was hacking at it, walking back. Van Wall's voice rang out in a warning shout of "Power!" as the emergency gasoline-powered dynamo thudded into action. Half a dozen other men were down there now; the coal, kindling were going into the firebox of the steam power plant. Norris, cursing in a low, deadly monotone, was working with quick, sure fingers on the other end of Barclay's cable, splicing in a contactor in one of the power leads.
 
-The dogs had fallen back when Barclay reached the corridor bend, fallen back before a furious monstrosity that glared from baleful red eyes, mewing in trapped hatred. The dogs were a semi-circle of red-dipped muzzles with a fringe of glistening white teeth, whining with a vicious eagerness that near matched the fury of the red eyes. McReady stood confidently alert at the corridor bend, the gustily muttering torch. held loose and ready for action in his hands. He stepped aside without moving his eyes from the beast as Barclay came up. There was a slight, tight smile on his lean, bronzed face.
+The dogs had fallen back when Barclay reached the corridor bend, fallen back before a furious monstrosity that glared from baleful red eyes, mewing in trapped hatred. The dogs were a semi-circle of red-dipped muzzles with a fringe of glistening white teeth, whining with a vicious eagerness that near matched the fury of the red eyes. McReady stood confidently alert at the corridor bend, the gustily muttering torch held loose and ready for action in his hands. He stepped aside without moving his eyes from the beast as Barclay came up. There was a slight, tight smile on his lean, bronzed face.
 
 Norris' voice called down the corridor, and Barclay stepped forward. The cable was taped to the long handle of a snow-shovel, the two conductors split, and held 18 inches apart by a scrap of lumber lashed at right angles across the far end of the handle. Bare copper conductors, charged with 220 volts, glinted in the light of pressure lamps. The Thing mewed and halted and dodged. McReady advanced to Barclay's side. The dogs beyond sensed the plan with the almost-telepathic intelligence of trained huskies. Their whimpering grew shriller, softer, their mincing steps carried them nearer. Abruptly a huge, night-black Alaskan leapt onto the trapped thing. It turned squalling, saber-clawed feet slashing.
 
@@ -423,7 +423,7 @@ The coppery blade rang on the floor as the aviation mechanic nervously dropped i
 
 Copper sat down on the bunk beside Blair. The wood creaked noisily in the room. Far down a corridor, a dog yelped in pain, and the dog-drivers' tense voices floated softly back. "Microscopic examination," said the doctor thoughtfully, "would be useless, as Blair pointed out. Considerable time has passed. However, serum tests would be definitive."
 
-"Serum tests? What do you mean exactly?"Commander Garry asked.
+"Serum tests? What do you mean exactly?" Commander Garry asked.
 
 "If I had a rabbit that had been injected with human blood — a poison to rabbits, of course, as is the blood of any animal save that of another rabbit — and the injections continued in increasing doses for some time, the rabbit would be human-immune. If a small quantity of its blood were drawn off, allowed to separate in a test-tube, and to the clear serum, a bit of human blood were added, there would be a visible reaction, proving the blood was human. If cow, or dog blood were added — or any protein material other than that one thing, human blood — no reaction would take place. That would prove definitely."
 

@@ -481,9 +481,9 @@ Copper looked toward Garry. "There wasn't any biology building. I don't know whe
 
 "He'll be capable enough. We'll be the ones to watch out," Copper assured him grimly. "Take a stove, a couple of bags of coal, necessary supplies and a few tools to fix it up. Nobody's been out there since last fall, have they?"
 
-Garry shook his head. "if he gets noisy — I thought that might be a good idea."
+Garry shook his head. "If he gets noisy — I thought that might be a good idea."
 
-Barclay hefted the tools he was carrying and looked up at Garry. "if the muttering he's doing now is any sign, he's going to sing away the night hours. And we won't like his song."
+Barclay hefted the tools he was carrying and looked up at Garry. "If the muttering he's doing now is any sign, he's going to sing away the night hours. And we won't like his song."
 
 "What's he saying?" Copper asked.
 
@@ -507,7 +507,7 @@ Copper nodded gravely. "They'll know something's wrong. But men like that have j
 
 "You mean if we don't come out?" asked Barclay. "I was wondering if a nice running account of an eruption or an earthquake via radio — with a swell windup by using a stick of decanite under the microphone — would help. Nothing, of course, will entirely keep people out. One of those swell, melodramatic 'last-man-alive-scenes' might make 'em go easy though."
 
-Garry smiled with genuine humor. "is everybody in camp trying to figure that out too?"
+Garry smiled with genuine humor. "Is everybody in camp trying to figure that out too?"
 
 Copper laughed. "What do you think, Garry? We're confident we can win out. But not too easy about it, I guess."
 
@@ -518,15 +518,15 @@ Blair moved restlessly around the small shack. His eyes jerked and quivered in v
 
 Blair was huddled up against the far wall of the East Cache cabin, his gear piled in the middle of the floor beside the heating stove, forming an island between him and the four men. His bony hands clenched and fluttered, terrified. His pale eyes wavered uneasily as his bald, freckled head darted about in birdlike motion.
 
-"I don't. want anybody coming here. I'll cook my own food," he snapped nervously. "Kinner may be human now, but I don't believe it. I'm going to get out of here, but I'm not going to eat any food you send me. I want cans. Sealed cans."
+"I don't want anybody coming here. I'll cook my own food," he snapped nervously. "Kinner may be human now, but I don't believe it. I'm going to get out of here, but I'm not going to eat any food you send me. I want cans. Sealed cans."
 
 "O.K., Blair, we'll bring'em tonight," Barclay promised. "You've got coal, and the fire's started. I'll make a list" — Barclay started forward.
 
-Blair instantly scurried to the farthest corner. "Get out! Keep away from me, you monster!" the little biologist shrieked, and tried to claw his way through the wall of the shack. "Keep away from me - keep away — I won't be absorbed — I won't be — "
+Blair instantly scurried to the farthest corner. "Get out! Keep away from me, you monster!" the little biologist shrieked, and tried to claw his way through the wall of the shack. "Keep away from me — keep away — I won't be absorbed — I won't be — "
 
 Barclay relaxed and moved back. Dr. Copper shook his head. "Leave him alone, Bar. It's easier for him to fix the thing himself. We'll have to fix the door, I think — "
 
-The four men let themselves out. Efficiently, Benning and Barclay fell to work. There were no locks in Antarctica; there wasn't enough privacy to make them needed. But powerful screws had been driven in each side of the door frame, and the spare aviation control cable, immensely strong, woven steel wire, was rapidly caught between them,. and drawn taut. Barclay went to work with a drill and a keyhole saw. Presently he had a trap cut in the door through which goods could be passed without unlashing the entrance. Three powerful hinges from a stock-crate, two hasps and a pair of three-inch cotter-pins made it proof against opening from the other side.
+The four men let themselves out. Efficiently, Benning and Barclay fell to work. There were no locks in Antarctica; there wasn't enough privacy to make them needed. But powerful screws had been driven in each side of the door frame, and the spare aviation control cable, immensely strong, woven steel wire, was rapidly caught between them, and drawn taut. Barclay went to work with a drill and a keyhole saw. Presently he had a trap cut in the door through which goods could be passed without unlashing the entrance. Three powerful hinges from a stock-crate, two hasps and a pair of three-inch cotter-pins made it proof against opening from the other side.
 
 Blair moved about restlessly inside. He was dragging something over to the door with panting gasps and muttering, frantic curses. Barclay opened the hatch and glanced in, Dr. Copper peering over his shoulder. Blair had moved the heavy bunk against the door. It could not be opened without his cooperation now.
 
@@ -560,7 +560,7 @@ Copper shook his head wearily. "Not if it reads minds. You can't plan a trap for
 
 None watched more tensely than Connant. A little sterile glass test-tube, half-filled with straw-colored fluid. One-two-three-four-five drops of the clear solution Dr. Copper had prepared from the drops of blood from Connant's arm. The tube was shaken carefully, then set in a beaker of clear, warm water. The thermometer read blood heat, a little thermostat clicked noisily, and the electric hotplate began to glow as the lights flickered slightly.
 
-Then — little white flecks of precipitation were forming, snowing down in the clear straw-colored fluid. "Lord," said Connant He dropped heavily into a bunk, crying like a baby. "Six days — " Connant sobbed, "six days in there — wondering if that damned test would lie — "
+Then — little white flecks of precipitation were forming, snowing down in the clear straw-colored fluid. "Lord," said Connant. He dropped heavily into a bunk, crying like a baby. "Six days — " Connant sobbed, "six days in there — wondering if that damned test would lie — "
 
 Garry moved over silently, and slipped his arm across the physicist's back.
 
@@ -601,7 +601,7 @@ Copper rocked back and forth slowly on the bunk. "I know I'm human. I can't prov
 
 Dr. Copper's head, then his neck and shoulders began circling slowly in time to the words. Suddenly he was lying back on the bunk, roaring with laughter. "It doesn't have to prove one of us is a monster! It doesn't have to prove that at all! Ho-ho. If we're _all_ monsters it works the same! We're all monsters — all of us — Connant and Garry and I — and all of you."
 
-"McReady," Van Wall, the blond-bearded Chief Pilot, called softly. "you were on the way to an M.D. when you took up meteorology, weren't you? Can you make some kind of test?"
+"McReady," Van Wall, the blond-bearded Chief Pilot, called softly. "You were on the way to an M.D. when you took up meteorology, weren't you? Can you make some kind of test?"
 
 McReady went over to Copper slowly, took the hypodermic from his hand, and washed it carefully in 95 per cent alcohol. Garry sat on the bunk edge with wooden face, watching Copper and McReady expressionlessly. "What Copper said is possible," McReady sighed. "Van, will you help here? Thanks." The filled needle jabbed into Copper's thigh. The man's laughter did not stop, but slowly faded into sobs, then sound sleep as the morphia took hold.
 
@@ -647,7 +647,7 @@ Clark snickered, and stopped with a hiccough. "Immunizing. Haw! Immune all right
 
 "Also. Reacted very nicely. They look funny as hell when they start melting. The beast hasn't any quick escape, when it's tied in dog chains, or halters, and it had to be to imitate."
 
-Kinner stood up slowly, His eyes darted around the room, and came to rest horribly quivering on a tin bucket in the galley. Slowly, step by step. he retreated toward the door, his mouth opening and closing silently, like a fish out of water.
+Kinner stood up slowly. His eyes darted around the room, and came to rest horribly quivering on a tin bucket in the galley. Slowly, step by step, he retreated toward the door, his mouth opening and closing silently, like a fish out of water.
 
 "The milk — " he gasped. "I milked'em an hour ago — " His voice broke into a scream as he dived through the door. He was out on the ice cap without windproof or heavy clothing.
 
@@ -722,7 +722,7 @@ Clark repeated his request. "Will you stop that bird's noise? He's driving me nu
 
 "Somebody's going to try that test you mentioned, if you don't stop him," Clark stated grimly. "I think a cleaver in the head would be as positive a test as a bullet in the heart."
 
-"Go ahead with the food. I'll see what I can do. There may be something in the cabinets." McReady moved wearily toward the corner Copper had used as his dispensary. Three tall cabinets of rough boards, two locked, were the repositories of the camp's medical supplies. Twelve years ago McReady had graduated, had started for an internship, and been diverted to meteorology. Copper was a picked man, a man who knew his profession. thoroughly and modernly. More than half the drugs available were totally unfamiliar to McReady; many of the others he had forgotten. There was no huge medical library here, no series of journals available to learn the things he had forgotten, the elementary, simple things to Copper, things that did not merit inclusion in the small library he had been forced to content himself with. Books are heavy, and every ounce of supplies had been freighted in by air.
+"Go ahead with the food. I'll see what I can do. There may be something in the cabinets." McReady moved wearily toward the corner Copper had used as his dispensary. Three tall cabinets of rough boards, two locked, were the repositories of the camp's medical supplies. Twelve years ago McReady had graduated, had started for an internship, and been diverted to meteorology. Copper was a picked man, a man who knew his profession thoroughly and modernly. More than half the drugs available were totally unfamiliar to McReady; many of the others he had forgotten. There was no huge medical library here, no series of journals available to learn the things he had forgotten, the elementary, simple things to Copper, things that did not merit inclusion in the small library he had been forced to content himself with. Books are heavy, and every ounce of supplies had been freighted in by air.
 
 McReady picked a barbituate hopefully. Barclay and Van went with him. One man never went anywhere alone in Big Magnet.
 
@@ -756,7 +756,7 @@ The bronze giant was forced to laugh. "O.K., Bart, you win. Maybe we aren't quit
 
 "Mad ones, you mean. Uh-huh. Clark, I'll help you with those pots so we can get our little peepshow going." Caldwell got up slowly.
 
-Dutton and Barclay and Benning, in charge of the projector and sound mechanism arrangements, went about their job silently, while the Ad Building was cleared and the dishes and pans disposed of. McReady drifted over toward Van Wall slowly, and leaned back in the bunk beside him. "I've been wondering, Van," he said with a wry grin, "whether or not to report my ideas in advance. I forgot the 'U animals' as Caldwell named it, could read minds. I've a vague idea of something that might work. it's too vague to bother with though. Go ahead with your show, while I try to figure out the logic of the thing. I'll take this bunk."
+Dutton and Barclay and Benning, in charge of the projector and sound mechanism arrangements, went about their job silently, while the Ad Building was cleared and the dishes and pans disposed of. McReady drifted over toward Van Wall slowly, and leaned back in the bunk beside him. "I've been wondering, Van," he said with a wry grin, "whether or not to report my ideas in advance. I forgot the 'U animals' as Caldwell named it, could read minds. I've a vague idea of something that might work. It's too vague to bother with though. Go ahead with your show, while I try to figure out the logic of the thing. I'll take this bunk."
 
 Van Wall glanced up, and nodded. The movie screen would be practically on a line with his bunk, hence making the pictures least distracting here, because least intelligible. "Perhaps you should tell us what you have in mind. As it is, only the unknowns know what you plan. You might be — unknown before you got it into operation."
 
@@ -833,9 +833,9 @@ The group tensed abruptly. An air of crushing menace entered into every man's bo
 
 "This," said Barclay, hefting the woodenhandled weapon, tipped with its two sharppointed, charged conductors, "is going to be rather necessary, I take it. Is the power plant assured?"
 
-Dutton nodded sharply. "The automatic stoker bin is full. The gas power plant is on stand-by. Van Wall and I set it for the movie operation and — we've checked it over rather carefully several times, you know. Anything those wires touch, dies," he assured them grimly "_I_ know that."
+Dutton nodded sharply. "The automatic stoker bin is full. The gas power plant is on stand-by. Van Wall and I set it for the movie operation and — we've checked it over rather carefully several times, you know. Anything those wires touch, dies," he assured them grimly, "_I_ know that."
 
-Dr. Copper stirred vaguely in his bunk, rubbed his eyes with fumbling hand. He sat up slowly, blinked his eyes blurred with sleep and drugs, widened with an unutterable horror of drug-ridden nightmares. "Garry," he mumbled, "Garry — listen. Selfish-from hell they came, and hellish shellfish — I mean self — Do I? What do I mean?" he sank back in his bunk, and snored softly.
+Dr. Copper stirred vaguely in his bunk, rubbed his eyes with fumbling hand. He sat up slowly, blinked his eyes blurred with sleep and drugs, widened with an unutterable horror of drug-ridden nightmares. "Garry," he mumbled, "Garry — listen. Selfish — from hell they came, and hellish shellfish — I mean self — Do I? What do I mean?" he sank back in his bunk, and snored softly.
 
 McReady looked at him thoughtfully. "We'll know presently," he nodded slowly. "But selfish is what you mean all right. You may have thought of that, half-sleeping, dreaming there. I didn't stop to think what dreams you might be having. But that's all right. Selfish is the word. They must be, you see." He turned to the men in the cabin, tense, silent men staring with wolfish eyes each at his neighbor. Selfish, and as Dr. Copper said _every part is a whole_. Every piece is self-sufficient, an animal in itself.
 
@@ -875,7 +875,7 @@ Slowly they picked themselves up, their eyes smoldering, very quiet in their emo
 
 Barclay went over with the electric weapon. Things smoldered and stank. The caustic acid Van Wall dropped on each spilled drop of blood gave off tickling, cough-provoking fumes.
 
-McReady grinned, his deep-set eyes alight and dancing. "Maybe," he said softly,. "I underrated man's abilities when I said nothing human could have the ferocity in the eyes of that thing we found. I wish we could have the opportunity to treat in a more befitting manner these things. Something with boiling oil, or melted lead in it, or maybe slow roasting in the power boiler. When I think what a man Dutton was —
+McReady grinned, his deep-set eyes alight and dancing. "Maybe," he said softly, "I underrated man's abilities when I said nothing human could have the ferocity in the eyes of that thing we found. I wish we could have the opportunity to treat in a more befitting manner these things. Something with boiling oil, or melted lead in it, or maybe slow roasting in the power boiler. When I think what a man Dutton was —
 
 "Never mind. My theory is confirmed by — by one who knew? Well, Van Wall and Barclay are proven. I think, then, that I'll try to show you what I already know. That I too am human." McReady swished the scalpel in absolute alcohol, burned it off the metal blade, and cut the base of his thumb expertly.
 
@@ -892,7 +892,7 @@ Garry spoke in a low, bitter voice. "Connant was one of the finest men we had he
 And thirty seconds later, Garry's blood shrank from the hot platinum wire, and struggled to escape the tube, struggled as frantically as a suddenly feral, red-eyed, dissolving imitation of Garry struggled to dodge the snake-tongue weapon Barclay advanced at him, white faced and sweating. The Thing in the test-tube screamed with a tin, tinny voice as McReady dropped it into the glowing coal of the galley stove. 
 
 ## Chapter 12
-"The last of it?" Dr. Copper looked down from his bunk with bloodshot, saddened eyes. "Fourteen of them — "\\
+"The last of it?" Dr. Copper looked down from his bunk with bloodshot, saddened eyes. "Fourteen of them — "
 
 McReady nodded shortly. "In some ways — if only we could have permanently prevented their spreading — I'd like to have even the imitations back. Commander Garry — Connant — Dutton — Clark — "
 
@@ -958,7 +958,7 @@ Barclay shook his head. "No more. It didn't split?"
 
 "It had other things to think about," McReady assured him. "When I left it, it was a glowing coal. What was it doing?"
 
-Norris laughed shortly. "Wise boys, we are. Smash magnetos, so planes won't work. Rip the boiler tubing' out of the tractors. And leave that Thing alone for a week in this shack. Alone and undisturbed."
+Norris laughed shortly. "Wise boys, we are. Smash magnetos, so planes won't work. Rip the boiler tubing out of the tractors. And leave that Thing alone for a week in this shack. Alone and undisturbed."
 
 McReady looked in at the shack more carefully. The air, despite the ripped door, was hot and humid. On a table at the far end of the room rested a thing of coiled wires and small magnets, glass tubing and radio tubes. At the center a block of rough stone rested. From the center of the block came the light that flooded the place, the fiercely blue light bluer than the glare of an electric arc, and from it came the sweetly soft hum. Off to one side was another mechanism of crystal glass, blown with an incredible neatness and delicacy, metal plates and a queer, shimmery sphere of insubstantiality.
 
@@ -966,7 +966,7 @@ McReady looked in at the shack more carefully. The air, despite the ripped door,
 
 Norris grunted. "Leave it for investigation. But I can guess pretty well. That's atomic power. That stuff to the left — that's a neat little thing for doing what men have been trying to do with 100-ton cyclotrons and so forth. It separates neutrons from heavy water, which he was getting from the surrounding ice."
 
-"Where did he get all — oh. Of course, A monster couldn't be locked in — or out. He's been through the apparatus caches." McReady stared at the apparatus. "Lord, what minds that race must have — "
+"Where did he get all — oh. Of course, a monster couldn't be locked in — or out. He's been through the apparatus caches." McReady stared at the apparatus. "Lord, what minds that race must have — "
 
 "The shimmery sphere — I think it's a sphere of pure force. Neutrons can pass through any matter, and he wanted a supply reservoir of neutrons. Just project neutrons against silica — calcium — beryllium — almost anything, and the atomic energy is released. That thing is the atomic generator."
 
@@ -986,7 +986,7 @@ Like a knapsnack made of flattened coffee-tins, with dangling cloth straps and l
 
 "Anti-gravity," Norris nodded. "Yes, we had 'em stopped, with no planes, and no birds. The birds hadn't come — but they had coffee-tins and radio parts, and glass and the machine shop at night. And a week — a whole week — all to itself. America in a single jump — with anti-gravity powered by the atomic energy of matter.
 
-"We had 'em stopped, Another half hour — it was just tightening these straps on the device so it could wear it — and we'd have stayed in Antarctica, and shot down any moving thing that came from, the rest of the world."
+"We had 'em stopped, another half hour — it was just tightening these straps on the device so it could wear it — and we'd have stayed in Antarctica, and shot down any moving thing that came from, the rest of the world."
 
 "The albatross — " McReady said softly. "Do you suppose — "
 

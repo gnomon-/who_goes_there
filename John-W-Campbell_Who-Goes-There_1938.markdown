@@ -1,10 +1,15 @@
-# Who Goes There?
-by John W. Campbell as Don A. Stuart
-1938
-Astounding Science-Fiction
+---
+title: Who Goes There?
+creator: John W. Campbell
+rights: Copyright © 1938 by John W. Campbell
+date: 1938
+description: First published in 1938 in Astounding Science-Fiction under the pseudonym of Don A. Stuart.
+language: en-US
+...
+
+Copyright © 1938 by John W. Campbell
 
 Typeset by [Sean M. Anderson][1]
-Copyright © 1938 by John W. Campbell Jr.
 
 This text is public domain with an expired copyright. The creation of this digital version is solely to provide a formatted version that is enjoyable to read on screen, e-readers, or paper with no desire for financial profit of any kind.
 
@@ -996,6 +1001,6 @@ Like a knapsnack made of flattened coffee-tins, with dangling cloth straps and l
 
 THE END
 
-[1]:	http://www.roguephysicist.org
+[1]:	https://github.com/roguephysicist/who_goes_there
 [2]:	http://nzr.mvnu.edu/faculty/trearick/english/rearick/readings/manuscri/Who%20Goes%20There/Who%20Goes%20There%20Index.htm "Hypertext Version of Who Goes There?"
 [3]:	http://www.archive.org/stream/WhoGoesThere_414/WhoGoesThere.txt "Plaintext version of Who Goes There?"

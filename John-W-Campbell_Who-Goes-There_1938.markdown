@@ -119,7 +119,7 @@ McReady looked toward Dr. Copper. The physician shook his head slowly. "None wha
 
 Vance Norris moved angrily. He was comparatively short in this gathering of big men, some five-feet-eight, and his stocky, powerful build tended to make him seem shorter. His black hair was crisp and hard, like short, steel wires, and his eyes were the gray of fractured steel. If McReady was a man of bronze, Norris was all steel. His movements, his thoughts, his whole bearing had the quick, hard impulse of steel spring. His nerves were steel — hard, quick-acting — swift corroding.
 
-He was decided on his point now, and he lashed out in its defense with a characteristic quick, clipped flow of words. "Different chemistry be damned. That thing may be dead-or, by God, it may not — but I don't like it. Damn it, Blair, let them see the foul thing and decide for themselves whether they want that thing thawed out in this camp.
+He was decided on his point now, and he lashed out in its defense with a characteristic quick, clipped flow of words. "Different chemistry be damned. That thing may be dead — or, by God, it may not — but I don't like it. Damn it, Blair, let them see the foul thing and decide for themselves whether they want that thing thawed out in this camp.
 
 "Thawed out, by the way. That's got to be thawed out in one of the shacks tonight, if it is thawed out. Somebody — who's watchman tonight? Magnetic — oh, Connant. Cosmic rays tonight. Well, you get to sit up with that twenty-million-year-old mummy of his.
 
@@ -315,7 +315,7 @@ Connant grinned. "Anybody that doesn't agree can sit up with it tonight."
 
 "All right then, Blair, what can you say about it? What was it?" Garry turned to the little biologist.
 
-"I wonder if we ever saw its natural form." Blair looked at the covered mass. "It may have been imitating the beings that built that ship — but I don't think it was. I think that was its true form. Those of us who were up near the bend saw the thing in action; the thing on the table is the result. When it got loose, apparently, it started looking around. Antarctica still frozen as it was ages ago when the creature first saw it — and froze. From my observations while it was thawing out, and the bits of tissue I cut and hardened then, I think it was native to a hotter planet than Earth. It couldn't, in its natural form, stand the temperature. There is no life-form on Earth that can live in Antarctica during the winter, but the best compromise is the dog. It found the dogs, and somehow got near enough to Charnauk to get him. The others smelled it — heard it — I don't know — anyway they wwent wild, and broke chains, and attacked it before it was finished. The thing we found was part Charnauk, queerly only half-dead, part Charnauk half-digested by the jellylike protoplasm of that creature, and part the remains of the thing we originally found, sort of melted down to the basic protoplasm.
+"I wonder if we ever saw its natural form." Blair looked at the covered mass. "It may have been imitating the beings that built that ship — but I don't think it was. I think that was its true form. Those of us who were up near the bend saw the thing in action; the thing on the table is the result. When it got loose, apparently, it started looking around. Antarctica still frozen as it was ages ago when the creature first saw it — and froze. From my observations while it was thawing out, and the bits of tissue I cut and hardened then, I think it was native to a hotter planet than Earth. It couldn't, in its natural form, stand the temperature. There is no life-form on Earth that can live in Antarctica during the winter, but the best compromise is the dog. It found the dogs, and somehow got near enough to Charnauk to get him. The others smelled it — heard it — I don't know — anyway they went wild, and broke chains, and attacked it before it was finished. The thing we found was part Charnauk, queerly only half-dead, part Charnauk half-digested by the jellylike protoplasm of that creature, and part the remains of the thing we originally found, sort of melted down to the basic protoplasm.
 
 "When the dogs attacked it, it turned — into the best fighting thing it could think of. Some other-world beast apparently."
 
@@ -569,7 +569,7 @@ Then — little white flecks of precipitation were forming, snowing down in the 
 
 Garry moved over silently, and slipped his arm across the physicist's back.
 
-"It couldn't tie," Dr. Copper said, "The dog was human-immune — and the serum reacted."
+"It couldn't lie," Dr. Copper said, "The dog was human-immune — and the serum reacted."
 
 "He's — all right?" Norris gasped. "Then — the animal is dead — dead forever?"
 
@@ -674,7 +674,7 @@ Van Wall shook his head. "Sorry. Proves nothing about what you are, only proves 
 
 "It doesn't do that," McReady sighed. "We are helpless. Because we don't know enough, and so jittery we don't think straight. Locked up! Ever watch a white corpuscle of the blood go through the wall of a blood vessel? No? It sticks out a pseudopod. And there it is — on the far side of the wall."
 
-"Oh," said Van Wall unhappily. "The cattle tried to melt down, didn't they? The could have melted down — become just a thread of stuff and leaked under a door to re-collect on the other side. Ropes — no — no, that wouldn't do it. They couldn't live in a sealed tank or — "
+"Oh," said Van Wall unhappily. "The cattle tried to melt down, didn't they? They could have melted down — become just a thread of stuff and leaked under a door to re-collect on the other side. Ropes — no — no, that wouldn't do it. They couldn't live in a sealed tank or — "
 
 "If," said McReady, "you shoot it through the heart, and it doesn't die, it's a monster. That's the best test I can think of, offhand."
 
@@ -733,7 +733,7 @@ McReady picked a barbituate hopefully. Barclay and Van went with him. One man ne
 
 Ralsen had his sledge put away, and the physicists had moved off the table, the poker game broken up when they got back. Clark was putting out the food. The click of spoons and the muffled sounds of eating were the only sign of life in the room. There were no words spoken as the three returned; simply all eyes focused on them questioningly, while the jaw moved methodically.
 
-MeReady stiffened suddenly. Kinnerr was screeching out a hymn in a hoarse, cracked voice. He looked wearily at Van Wall with a twisted grin and shook his head. "Hu-uh."
+McReady stiffened suddenly. Kinner was screeching out a hymn in a hoarse, cracked voice. He looked wearily at Van Wall with a twisted grin and shook his head. "Hu-uh."
 
 Van Wall cursed bitterly, and sat down at the table. "We'll just plumb have to take that till his voice wears out. He can't yell like that forever."
 
@@ -842,7 +842,7 @@ Dutton nodded sharply. "The automatic stoker bin is full. The gas power plant is
 
 Dr. Copper stirred vaguely in his bunk, rubbed his eyes with fumbling hand. He sat up slowly, blinked his eyes blurred with sleep and drugs, widened with an unutterable horror of drug-ridden nightmares. "Garry," he mumbled, "Garry — listen. Selfish — from hell they came, and hellish shellfish — I mean self — Do I? What do I mean?" he sank back in his bunk, and snored softly.
 
-McReady looked at him thoughtfully. "We'll know presently," he nodded slowly. "But selfish is what you mean all right. You may have thought of that, half-sleeping, dreaming there. I didn't stop to think what dreams you might be having. But that's all right. Selfish is the word. They must be, you see." He turned to the men in the cabin, tense, silent men staring with wolfish eyes each at his neighbor. Selfish, and as Dr. Copper said _every part is a whole_. Every piece is self-sufficient, an animal in itself.
+McReady looked at him thoughtfully. "We'll know presently," he nodded slowly. "But selfish is what you mean all right. You may have thought of that, half-sleeping, dreaming there. I didn't stop to think what dreams you might be having. But that's all right. Selfish is the word. They must be, you see." He turned to the men in the cabin, tense, silent men staring with wolfish eyes each at his neighbor. "Selfish, and as Dr. Copper said _every part is a whole_. Every piece is self-sufficient, an animal in itself.
 
 "That, and one other thing, tell the story. There's nothing mysterious about blood; it's just as normal a body tissue as a piece of muscle, or a piece of liver. But it hasn't so much connective tissue, though it has millions, billions of lifecells."
 

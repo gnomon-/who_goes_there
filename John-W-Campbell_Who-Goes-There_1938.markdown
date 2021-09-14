@@ -690,109 +690,110 @@ Van Wall shook his head.  "Sorry.  Proves nothing about what you are, only prove
 "No dogs," said Garry quietly, "and no cattle.  It has to imitate men now.  And locking up doesn't do any good.  Your test might have work, Mac, but I am afraid it would be hard on the men."
 
 ## Chapter 10
-Clark looked up from the galley stove as Van Wall, Barclay, McReady and Benning came in, brushing the drift from their clothes. The other men jammed into the Ad Building continued studiously to do as they were doing, playing chess, poker, reading. Ralsen was fixing a sledge on the table; Van and Norris had their heads together over magnetic data, while Harvey read tables in a low voice.
 
-Dr. Copper snored softly on the bunk. Garry was working with Dutton over a sheaf of radio messages on the corner of Dutton's bunk and a small fraction of the radio table. Connant was using most of the table for Cosmic Ray sheets.
+Clark looked up from the galley stove as Van Wall, Barclay, McReady and Benning came in, brushing the drift from their clothes.  The other men jammed into the Ad Building continued studiously to do as they were doing, playing chess, poker, reading.  Ralsen was fixing a sledge on the table; Van and Norris had their heads together over magnetic data, while Harvey read tables in a low voice.
 
-Quite plainly through the corridor, despite two closed doors, they could hear Kinner's voice. Clark banged a kettle onto the galley stove and beckoned McReady silently. The meterologist went over to him.
+Dr. Copper snored softly on the bunk.  Garry was working with Dutton over a sheaf of radio messages on the corner of Dutton's bunk and a small fraction of the radio table.  Connant was using most of the table for Cosmic Ray sheets.
 
-"I don't mind the cooking so damn much," Clark said nervously, "but isn't there some way to stop that bird? We all agreed that it would be safe to move him into Cosmos House."
+Quite plainly through the corridor, despite two closed doors, they could hear Kinner's voice.  Clark banged a kettle onto the galley stove and beckoned McReady silently.  The meterologist went over to him.
 
-"Kinner?" McReady nodded toward the door. "I'm afraid not. I can dope him, I suppose, but we don't have an unlimited supply of morphia, and he's not in danger of losing his mind. Just hysterical."
+"I don't mind the cooking so damn much," Clark said nervously, "but isn't there some way to stop that bird?  We all agreed that it would be safe to move him into Cosmos House."
 
-"Well, we're in danger of losing ours. You've been out for an hour and a half. That's been going on steadily ever since, and it was going for two hours before. There's a limit, you know."
+"Kinner?" McReady nodded toward the door.  "I'm afraid not.  I can dope him, I suppose, but we don't have an unlimited supply of morphia, and he's not in danger of losing his mind.  Just hysterical."
 
-Garry wandered over slowly, apologetically. For an instant, McReady caught the feral spark of fear — horror — in Clark's eyes, and knew at the same instant it was in his own. Garry — Garry or Copper — was certainly a monster.
+"Well, we're in danger of losing ours.  You've been out for an hour and a half.  That's been going on steadily ever since, and it was going for two hours before.  There's a limit, you know."
 
-"If you could stop that, I think it would be a sound policy, Mac," Garry spoke quietly. "There are — tensions enough in this room. We agreed that it would be safe for Kinner in there, because everyone else in camp is under constant eyeing." Garry shivered slightly. "And try, try in God's name, to find some test that will work."
+Garry wandered over slowly, apologetically.  For an instant, McReady caught the feral spark of fear - horror - in Clark's eyes, and knew at the same instant it was in his own.  Garry - Garry or Copper - was certainly a monster.
 
-McReady sighed. "Watch or unwatched, everyone's tense. Blair's jammed the trap so it won't open now. Says he's got food enough, and keeps screaming 'Go away, go away — you're monsters. I won't be absorbed. I won't. I'll tell men when they come. Go away.' So — we went away."
+"If you could stop that, I think it would be a sound policy, Mac," Garry spoke quietly.  "There are - tensions enough in this room.  We agreed that it would be safe for Kinner in there, because everyone else in camp is under constant eyeing."  Garry shivered slightly.  "And try, try in God's name, to find some test that will work."
+
+McReady sighed.  "Watch or unwatched, everyone's tense.  Blair's jammed the trap so it won't open now.  Says he's got food enough, and keeps screaming 'Go away, go away - you're monsters.  I won't be absorbed.  I won't.  I'll tell men when they come.  Go away.'  So - we went away."
 
 "There's no other test?" Garry pleaded.
 
-McReady shrugged his shoulders. "Copper was perfectly right. The serum test could be absolutely definitive if it hadn't been — contaminated. But that's the only dog left, and he's fixed now."
+McReady shrugged his shoulders.  "Copper was perfectly right.  The serum test could be absolutely definitive if it hadn't been - contaminated.  But that's the only dog left, and he's fixed now."
 
-"Chemicals? Chemical tests?"
+"Chemicals?  Chemical tests?"
 
-McReady shook his head. "Our chemistry isn't that good. I tried the microscope, you know."
+McReady shook his head.  "Our chemistry isn't that good.  I tried the microscope, you know."
 
-Garry nodded. "Monster-dog and real dog were identical. But — you've got to go on. What are we going to do after dinner?"
+Garry nodded.  "Monster-dog and real dog were identical.  But - you've got to go on.  What are we going to do after dinner?"
 
-Van Wall joined them quietly. "Rotation sleeping. Half the crowd asleep; half awake. I wonder how many of us are monsters? All the dogs were. We thought we were safe, but somehow it got Copper — or you." Van Wall's eyes flashed uneasily. "It may have gotten every one of you — all of you but myself may be wondering, looking. No, that's not possible. You'd just spring then. I'd be helpless. We humans might somehow have the greater number now. But — " he stopped.
+Van Wall joined them quietly.  "Rotation sleeping.  Half the crowd asleep; half awake.  I wonder how many of us are monsters?  All the dogs were.  We thought we were safe, but somehow it got Copper - or you."  Van Wall's eyes flashed uneasily.  "It may have gotten every one of you - all of you but myself may be wondering, looking.  No, that's not possible.  You'd just spring then.  I'd be helpless.  We humans might somehow have the greater number now.  But - " he stopped.
 
-McReady laughed shortly. "You're doing what Norris complained of in me. Leaving it hanging. 'But if one more is changed — that may shift the balance of power.' It doesn't fight. I don't think it ever fights. It must be a peaceable thing, in its own — inimitable — way. It never had to, because it always gained its end — otherwise."
+McReady laughed shortly.  "You're doing what Norris complained of in me.  Leaving it hanging.  'But if one more is changed - that may shift the balance of power.'  It doesn't fight.  I don't think it ever fights.  It must be a peaceable thing, in its own - inimitable - way.  It never had to, because it always gained its end - otherwise."
 
-Van Wall's mouth twisted in a sickly grin. "You're suggesting then, that perhaps it already has the greater numbers, but is just waiting — waiting, all of them — all of you, for all I know — waiting till I, the last human, drop my wariness in sleep. Mac, did you notice their eyes, all looking at us?"
+Van Wall's mouth twisted in a sickly grin.  "You're suggesting then, that perhaps it already has the greater numbers, but is just waiting - waiting, all of them - all of you, for all I know - waiting till I, the last human, drop my wariness in sleep.  Mac, did you notice their eyes, all looking at us?"
 
-Garry sighed. "You haven't been sitting here for four straight hours, while all their eyes silently weighed the information that one of us two, Copper or I, is a monster certainly — perhaps both of us."
+Garry sighed.  "You haven't been sitting here for four straight hours, while all their eyes silently weighed the information that one of us two, Copper or I, is a monster certainly - perhaps both of us."
 
-Clark repeated his request. "Will you stop that bird's noise? He's driving me nuts. Make him tone down, anyway."
+Clark repeated his request.  "Will you stop that bird's noise?  He's driving me nuts.  Make him tone down, anyway."
 
 "Still praying?" McReady asked.
 
-"Still praying," Clark groaned. "He hasn't stopped for a second. I don't mind, his praying if it relieves him, but he yells, he sings psalms and hymns and shouts prayers. He thinks God can't hear well way down here."
+"Still praying," Clark groaned.  "He hasn't stopped for a second.  I don't mind, his praying if it relieves him, but he yells, he sings psalms and hymns and shouts prayers.  He thinks God can't hear well way down here."
 
-"Maybe He can't," Barclay grunted. "Or He'd have done something about this thing loosed from hell."
+"Maybe He can't," Barclay grunted.  "Or He'd have done something about this thing loosed from hell."
 
-"Somebody's going to try that test you mentioned, if you don't stop him," Clark stated grimly. "I think a cleaver in the head would be as positive a test as a bullet in the heart."
+"Somebody's going to try that test you mentioned, if you don't stop him," Clark stated grimly.  "I think a cleaver in the head would be as positive a test as a bullet in the heart."
 
-"Go ahead with the food. I'll see what I can do. There may be something in the cabinets." McReady moved wearily toward the corner Copper had used as his dispensary. Three tall cabinets of rough boards, two locked, were the repositories of the camp's medical supplies. Twelve years ago McReady had graduated, had started for an internship, and been diverted to meteorology. Copper was a picked man, a man who knew his profession thoroughly and modernly. More than half the drugs available were totally unfamiliar to McReady; many of the others he had forgotten. There was no huge medical library here, no series of journals available to learn the things he had forgotten, the elementary, simple things to Copper, things that did not merit inclusion in the small library he had been forced to content himself with. Books are heavy, and every ounce of supplies had been freighted in by air.
+"Go ahead with the food.  I'll see what I can do.  There may be something in the cabinets."  McReady moved wearily toward the corner Copper had used as his dispensary.  Three tall cabinets of rough boards, two locked, were the repositories of the camp's medical supplies.  Twelve years ago McReady had graduated, had started for an internship, and been diverted to meteorology.  Copper was a picked man, a man who knew his profession thoroughly and modernly.  More than half the drugs available were totally unfamiliar to McReady; many of the others he had forgotten.  There was no huge medical library here, no series of journals available to learn the things he had forgotten, the elementary, simple things to Copper, things that did not merit inclusion in the small library he had been forced to content himself with.  Books are heavy, and every ounce of supplies had been freighted in by air.
 
-McReady picked a barbituate hopefully. Barclay and Van went with him. One man never went anywhere alone in Big Magnet.
+McReady picked a barbituate hopefully.  Barclay and Van went with him.  One man never went anywhere alone in Big Magnet.
 
-Ralsen had his sledge put away, and the physicists had moved off the table, the poker game broken up when they got back. Clark was putting out the food. The click of spoons and the muffled sounds of eating were the only sign of life in the room. There were no words spoken as the three returned; simply all eyes focused on them questioningly, while the jaw moved methodically.
+Ralsen had his sledge put away, and the physicists had moved off the table, the poker game broken up when they got back.  Clark was putting out the food.  The click of spoons and the muffled sounds of eating were the only sign of life in the room.  There were no words spoken as the three returned; simply all eyes focused on them questioningly, while the jaw moved methodically.
 
-McReady stiffened suddenly. Kinner was screeching out a hymn in a hoarse, cracked voice. He looked wearily at Van Wall with a twisted grin and shook his head. "Hu-uh."
+McReady stiffened suddenly.  Kinner was screeching out a hymn in a hoarse, cracked voice.  He looked wearily at Van Wall with a twisted grin and shook his head.  "Hu-uh."
 
-Van Wall cursed bitterly, and sat down at the table. "We'll just plumb have to take that till his voice wears out. He can't yell like that forever."
+Van Wall cursed bitterly, and sat down at the table.  "We'll just plumb have to take that till his voice wears out.  He can't yell like that forever."
 
-"He's got a brass throat and a cast-iron larynx," Norris declared savagely. "Then we could be hopeful, and suggest he's one of our friends. In that case he could go on renewing his throat till doomsday."
+"He's got a brass throat and a cast-iron larynx," Norris declared savagely.  "Then we could be hopeful, and suggest he's one of our friends.  In that case he could go on renewing his throat till doomsday."
 
-Silence clamped down. For twenty minutes they ate without a word. Then Connant jumped up with an angry violence. "You sit as still as a bunch of graven images. You don't say a word, but oh Lord, what expressive eyes you've got. They roll around like a bunch of glass marbles spilling down a table. They wink and blink and stare — and whisper things. Can you guys look somewhere else for a change, please?
+Silence clamped down.  For twenty minutes they ate without a word.  Then Connant jumped up with an angry violence.  "You sit as still as a bunch of graven images.  You don't say a word, but oh Lord, what expressive eyes you've got.  They roll around like a bunch of glass marbles spilling down a table.  They wink and blink and stare - and whisper things.  Can you guys look somewhere else for a change, please?
 
-"Listen, Mac, you're in charge here. Let's run movies for the rest of the night. We've been saving those reels to make'em last. Last for what? Who is it's going to see those last reels, eh? Let's see'em while we can, and look at something other than each other."
+"Listen, Mac, you're in charge here.  Let's run movies for the rest of the night.  We've been saving those reels to make'em last.  Last for what?  Who is it's going to see those last reels, eh?  Let's see'em while we can, and look at something other than each other."
 
-"Sound idea, Connant. I, for one, am quite willing to change this in any way I can."
+"Sound idea, Connant.  I, for one, am quite willing to change this in any way I can."
 
-"Turn the sound up loud, Dutton. Maybe you can drown out the hymns," Clark suggested.
+"Turn the sound up loud, Dutton.  Maybe you can drown out the hymns," Clark suggested.
 
 "But don't," Norris said softly, "don't turn off the lights altogether."
 
-"The lights will be out." McReady shook his head. "We'll show all the cartoon movies we have. You won't mind seeing the old cartoons, will you?"
+"The lights will be out."  McReady shook his head.  "We'll show all the cartoon movies we have.  You won't mind seeing the old cartoons, will you?"
 
-"Goody, goody — a moom pitcher show. I'm just in the mood." McReady turned to look at the speaker, a lean, lanky New Englander, by the name of Caldwell. Caldwell was stuffing his pipe slowly, a sour eye cocked up to McReady.
+"Goody, goody - a moom pitcher show.  I'm just in the mood."  McReady turned to look at the speaker, a lean, lanky New Englander, by the name of Caldwell.  Caldwell was stuffing his pipe slowly, a sour eye cocked up to McReady.
 
-The bronze giant was forced to laugh. "O.K., Bart, you win. Maybe we aren't quite in the mood for Popeye and trick ducks, but it's something."
+The bronze giant was forced to laugh.  "O.K., Bart, you win.  Maybe we aren't quite in the mood for Popeye and trick ducks, but it's something."
 
-"Let's play Classifications," Caldwell suggested slowly. "Or maybe you call it Guggenheim. You draw lines on a piece of paper, and put down classes of things — like animals, you know. One for 'H' and one for 'U' and so on. Like 'Human' and 'Unknown' for instance. I think that would be a hell of a lot better game. Classification, I sort of figure is what we need right now a lot more than movies. Maybe somebody's got a pencil that he can draw lines with, draw lines between the 'U' animals and the 'H' animals for instance."
+"Let's play Classifications," Caldwell suggested slowly.  "Or maybe you call it Guggenheim.  You draw lines on a piece of paper, and put down classes of things - like animals, you know.  One for 'H' and one for 'U' and so on.  Like 'Human' and 'Unknown' for instance.  I think that would be a hell of a lot better game.  Classification, I sort of figure is what we need right now a lot more than movies.  Maybe somebody's got a pencil that he can draw lines with, draw lines between the 'U' animals and the 'H' animals for instance."
 
-"McReady's trying to find that kind of pencil," Van Wall answered quietly, "but we've got three kinds of animals here, you know. One that begins with 'M'. We don't want any more."
+"McReady's trying to find that kind of pencil," Van Wall answered quietly, "but we've got three kinds of animals here, you know.  One that begins with 'M'.  We don't want any more."
 
-"Mad ones, you mean. Uh-huh. Clark, I'll help you with those pots so we can get our little peepshow going." Caldwell got up slowly.
+"Mad ones, you mean.  Uh-huh.  Clark, I'll help you with those pots so we can get our little peepshow going."  Caldwell got up slowly.
 
-Dutton and Barclay and Benning, in charge of the projector and sound mechanism arrangements, went about their job silently, while the Ad Building was cleared and the dishes and pans disposed of. McReady drifted over toward Van Wall slowly, and leaned back in the bunk beside him. "I've been wondering, Van," he said with a wry grin, "whether or not to report my ideas in advance. I forgot the 'U animals' as Caldwell named it, could read minds. I've a vague idea of something that might work. It's too vague to bother with though. Go ahead with your show, while I try to figure out the logic of the thing. I'll take this bunk."
+Dutton and Barclay and Benning, in charge of the projector and sound mechanism arrangements, went about their job silently, while the Ad Building was cleared and the dishes and pans disposed of.  McReady drifted over toward Van Wall slowly, and leaned back in the bunk beside him.  "I've been wondering, Van," he said with a wry grin, "whether or not to report my ideas in advance.  I forgot the 'U animals' as Caldwell named it, could read minds.  I've a vague idea of something that might work.  It's too vague to bother with though.  Go ahead with your show, while I try to figure out the logic of the thing.  I'll take this bunk."
 
-Van Wall glanced up, and nodded. The movie screen would be practically on a line with his bunk, hence making the pictures least distracting here, because least intelligible. "Perhaps you should tell us what you have in mind. As it is, only the unknowns know what you plan. You might be — unknown before you got it into operation."
+Van Wall glanced up, and nodded.  The movie screen would be practically on a line with his bunk, hence making the pictures least distracting here, because least intelligible.  "Perhaps you should tell us what you have in mind.  As it is, only the unknowns know what you plan.  You might be - unknown before you got it into operation."
 
-"Won't take long, if I get it figured out right. But I don't want any more all-but-the-test-dogmonsters things. We better move Copper into this bunk directly above me. He won't be watching the screen either." McReady nodded toward Copper's gently snoring bulk. Garry helped them lift and move the doctor.
+"Won't take long, if I get it figured out right.  But I don't want any more all-but-the-test-dogmonsters things.  We better move Copper into this bunk directly above me.  He won't be watching the screen either."  McReady nodded toward Copper's gently snoring bulk.  Garry helped them lift and move the doctor.
 
-McReady leaned back against the bunk, and sank into a trance, almost, of concentration, trying to calculate chances, operations, methods. He was scarcely aware as the others distributed themselves silently, and the screen lit up. Vaguely Kinner's hectic, shouted prayers and his rasping hymn-singing annoyed him till the sound accompaniment started. The lights were turned out, but the large, light-colored areas of the screen reflected enough light for ready visibility. It made men's eyes sparkle as they moved restlessly. Kinner was still praying, shouting, his voice a raucous accompaniment to the mechanical sound. Dutton stepped up the amplification.
+McReady leaned back against the bunk, and sank into a trance, almost, of concentration, trying to calculate chances, operations, methods.  He was scarcely aware as the others distributed themselves silently, and the screen lit up.  Vaguely Kinner's hectic, shouted prayers and his rasping hymn-singing annoyed him till the sound accompaniment started.  The lights were turned out, but the large, light-colored areas of the screen reflected enough light for ready visibility.  It made men's eyes sparkle as they moved restlessly.  Kinner was still praying, shouting, his voice a raucous accompaniment to the mechanical sound.  Dutton stepped up the amplification.
 
-So long had the voice been going on, that only vaguely at first was McReady aware that something seemed missing. Lying as he was, just across the narrow room from the corridor leading to Cosmos House, Kinner's voice had reached him fairly clearly, despite the sound accompaniment of the pictures. It struck him abruptly that it had stopped.
+So long had the voice been going on, that only vaguely at first was McReady aware that something seemed missing.  Lying as he was, just across the narrow room from the corridor leading to Cosmos House, Kinner's voice had reached him fairly clearly, despite the sound accompaniment of the pictures.  It struck him abruptly that it had stopped.
 
-"Dutton, cut that sound," McReady called as he sat up abruptly. The pictures flickered a moment, soundless and strangely futile in the sudden, deep silence. The rising wind on the surface above bubbled melancholy tears of sound down the stove pipes. "Kinner's stopped," McReady said softly.
+"Dutton, cut that sound," McReady called as he sat up abruptly.  The pictures flickered a moment, soundless and strangely futile in the sudden, deep silence.  The rising wind on the surface above bubbled melancholy tears of sound down the stove pipes.  "Kinner's stopped," McReady said softly.
 
 "For God's sake start that sound then, he may have stopped to listen," Norris snapped.
 
-McReady rose and went down the corridor. Barclay and Van Wall left their places at the far end of the room to follow him. The flickers bulged and twisted on the back of Barclay's gray underwear as he crossed the still-functioning beam of the projector. Dutton snapped on the lights, and the pictures vanished.
+McReady rose and went down the corridor.  Barclay and Van Wall left their places at the far end of the room to follow him.  The flickers bulged and twisted on the back of Barclay's gray underwear as he crossed the still-functioning beam of the projector.  Dutton snapped on the lights, and the pictures vanished.
 
-Norris stood at the door as McReady had asked. Garry sat down quietly in the bunk nearest the door, forcing Clark to make room for him. Most of the others had stayed exactly where they were. Only Connant walked slowly up and down the room, in steady, unvarying rhythm.
+Norris stood at the door as McReady had asked.  Garry sat down quietly in the bunk nearest the door, forcing Clark to make room for him.  Most of the others had stayed exactly where they were.  Only Connant walked slowly up and down the room, in steady, unvarying rhythm.
 
-"If you're going to do that, Connant," Clark spat, "we can get along without you altogether, whether you're human or not. Will you stop that damned rhythm?"
+"If you're going to do that, Connant," Clark spat, "we can get along without you altogether, whether you're human or not.  Will you stop that damned rhythm?"
 
-"Sorry." The physicist sat down in a bunk, and watched his toes thoughtfully. It was almost five minutes, five ages while the wind made the only sound, before McReady appeared at the door.
+"Sorry."  The physicist sat down in a bunk, and watched his toes thoughtfully.  It was almost five minutes, five ages while the wind made the only sound, before McReady appeared at the door.
 
-"We," he announced, "haven't got enough grief here already. Somebody's tried to help us out. Kinner has a knife in his throat, which was why he stopped singing, probably. We've got monsters, madmen and murderers. Any more 'M's' you can think of, Caldwell? If there are, we'll probably have 'em before long." 
+"We," he announced, "haven't got enough grief here already.  Somebody's tried to help us out.  Kinner has a knife in his throat, which was why he stopped singing, probably.  We've got monsters, madmen and murderers.  Any more 'M's' you can think of, Caldwell?  If there are, we'll probably have 'em before long."
 
 ## Chapter 11
 "Is Blair loose?" someone asked.

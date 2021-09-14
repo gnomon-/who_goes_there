@@ -252,61 +252,62 @@ The creak of the floorboards behind him didn't interrupt his thoughts as he went
 The creak of the floorboard sounded nearer. 
 
 ## Chapter 5
-Blair came up from the nightmare-haunted depths of sleep abruptly. Connant's face floated vaguely above him; for a moment it seemed a continuance of the wild horror of the dream. But Connant's face was angry, and a little frightened. "Blair — Blair you damned log, wake up."
 
-"Uh-eh?" the little biologist rubbed his eyes, his bony, freckled fingers crooked to a mutilated child-fist. From surrounding bunks other faces lifted to stare down at them.
+Blair came up from the nightmare-haunted depths of sleep abruptly.  Connant's face floated vaguely above him; for a moment it seemed a continuance of the wild horror of the dream.  But Connant's face was angry, and a little frightened.  "Blair - Blair you damned log, wake up."
 
-Connant straightened up. "Get up — and get a lift on. Your damned animal's escaped."
+"Uh-eh?" the little biologist rubbed his eyes, his bony, freckled fingers crooked to a mutilated child-fist.  From surrounding bunks other faces lifted to stare down at them.
 
-"Escaped — what!" Chief Pilot Van Walls's bull voice roared out with a volume that shook the walls. Down the communication tunnels other voices yelled suddenly. The dozen inhabitants of Paradise House tumbled in abruptly, Barclay, stocky and bulbous in long woolen underwear, carrying a fire extinguisher.
+Connant straightened up.  "Get up - and get a lift on.  Your damned animal's escaped."
+
+"Escaped - what!"  Chief Pilot Van Walls's bull voice roared out with a volume that shook the walls.  Down the communication tunnels other voices yelled suddenly.  The dozen inhabitants of Paradise House tumbled in abruptly, Barclay, stocky and bulbous in long woolen underwear, carrying a fire extinguisher.
 
 "What the hell's the matter?" Barclay demanded.
 
-"Your damned beast got loose. I fell asleep about twenty minutes ago, and when I woke up, the thing was gone. Hey, Doc, the hell you say those things can't come to life. Blair's blasted potential life developed a hell of a lot of potential and walked out on us."
+"Your damned beast got loose.  I fell asleep about twenty minutes ago, and when I woke up, the thing was gone.  Hey, Doc, the hell you say those things can't come to life.  Blair's blasted potential life developed a hell of a lot of potential and walked out on us."
 
-Copper stared blankly. "It wasn't — Earthly," he sighed suddenly. "I — I guess Earthly laws don't apply."
+Copper stared blankly.  "It wasn't - Earthly," he sighed suddenly.  "I - I guess Earthly laws don't apply."
 
-"Well, it applied for leave of absence and took it. We've got to find it and capture it somehow." Connant swore bitterly, his deep-set black eyes sullen and angry. "It's a wonder the hellish creature didn't eat me in my sleep."
+"Well, it applied for leave of absence and took it.  We've got to find it and capture it somehow."  Connant swore bitterly, his deep-set black eyes sullen and angry.  "It's a wonder the hellish creature didn't eat me in my sleep."
 
-Blair stared back, his pale eyes suddenly fear-struck. "Maybe it di — er — uh — we'll have to find it."
+Blair stared back, his pale eyes suddenly fear-struck.  "Maybe it di - er - uh - we'll have to find it."
 
-"You find it. It's your pet. I've had all I want to do with it, sitting there for seven hours with the counter clucking every few seconds, and you birds in here singing night-music. It's a wonder I got to sleep. I'm going through to the Ad Building."
+"You find it.  It's your pet.  I've had all I want to do with it, sitting there for seven hours with the counter clucking every few seconds, and you birds in here singing night-music.  It's a wonder I got to sleep.  I'm going through to the Ad Building."
 
-Commander Garry ducked through the doorway, pulling his belt tight. "You won't have to. Van's roar sounded like the Boeing taking off down wind. So it wasn't dead?"
+Commander Garry ducked through the doorway, pulling his belt tight.  "You won't have to.  Van's roar sounded like the Boeing taking off down wind.  So it wasn't dead?"
 
-"I didn't carry it off in my arms, I assure you," Connant snapped. "The last I saw, that split skull was oozing green goo, like a squashed caterpillar. Doc just said our laws don't work — it's unearthly. Well, it's an unearthly monster, with an unearthly disposition, judging by the face, wandering around with a split skull and brains oozing out."
+"I didn't carry it off in my arms, I assure you," Connant snapped.  "The last I saw, that split skull was oozing green goo, like a squashed caterpillar.  Doc just said our laws don't work - it's unearthly.  Well, it's an unearthly monster, with an unearthly disposition, judging by the face, wandering around with a split skull and brains oozing out."
 
-Norris and McReady appeared in the doorway, a doorway filling with other shivering men. "Has anybody seen it coming over here?" Norris asked innocently. "About four feet tall — three red eyes — brains oozing — Hey, has anybody checked to make sure this isn't a cracked idea of humor? If it is, I think we'll unite in tying Blair's pet around Connant's neck like the ancient Mariner's albatross."
+Norris and McReady appeared in the doorway, a doorway filling with other shivering men.  "Has anybody seen it coming over here?"  Norris asked innocently.  "About four feet tall - three red eyes - brains oozing - Hey, has anybody checked to make sure this isn't a cracked idea of humor?  If it is, I think we'll unite in tying Blair's pet around Connant's neck like the ancient Mariner's albatross."
 
-"It's no humor," Connant shivered. "Lord, I wish it were. I'd rather wear — " He stopped. A wild, weird howl shhrieked through the corridors. The men stiffened abruptly, and half turned.
+"It's no humor," Connant shivered.  "Lord, I wish it were.  I'd rather wear - "  He stopped.  A wild, weird howl shrieked through the corridors.  The men stiffened abruptly, and half turned.
 
-"I think it's been located," Connant finished. His dark eyes shifted with a queer unease. He darted back to his bunk in Paradise house, to return almost immediately with a heavy .45 revolver and an ice-ax. He hefted both gently as he started for the corridor toward Dogtown. "It blundered down the wrong corridor — and landed among the huskies. Listen — the dogs have broken their chains — "
+"I think it's been located," Connant finished.  His dark eyes shifted with a queer unease.  He darted back to his bunk in Paradise house, to return almost immediately with a heavy .45 revolver and an ice-ax.  He hefted both gently as he started for the corridor toward Dogtown.  "It blundered down the wrong corridor - and landed among the huskies.  Listen - the dogs have broken their chains - "
 
-The half-terrorized howl of the dog pack changed to a wild hunting melee. The voices of the dogs thundered in the narrow corridors, and through them came a low rippling snarl of distilled hate. A shrill of pain, a dozen snarling yelps.
+The half-terrorized howl of the dog pack changed to a wild hunting melee.  The voices of the dogs thundered in the narrow corridors, and through them came a low rippling snarl of distilled hate.  A shrill of pain, a dozen snarling yelps.
 
-Connant broke for the door. Close behind him, McReady, then Barclay and Commander Garry came. Other men broke for the Ad Building, and weapons — the sledge house. Pomroy, in charge of Big Magnet's five cows, started down the corridor in the opposite direction — he had a six-foot-handled, long-tined pitchfork in mind.
+Connant broke for the door.  Close behind him, McReady, then Barclay and Commander Garry came.  Other men broke for the Ad Building, and weapons - the sledge house.  Pomroy, in charge of Big Magnet's five cows, started down the corridor in the opposite direction - he had a six-foot-handled, long-tined pitchfork in mind.
 
-Barclay slid to a halt, as McReady's giant bulk turned abruptly away from the tunnel leading to Dogtown, and vanished off at an angle. Uncertainly, the mechanician wavered a moment, the fire-extinguisher in his hands, hesitating from one side to the other. Then he was racing after Connant's broad back. Whatever McReady had in mind, he could be trusted to make it work.
+Barclay slid to a halt, as McReady's giant bulk turned abruptly away from the tunnel leading to Dogtown, and vanished off at an angle.  Uncertainly, the mechanician wavered a moment, the fire-extinguisher in his hands, hesitating from one side to the other.  Then he was racing after Connant's broad back.  Whatever McReady had in mind, he could be trusted to make it work.
 
-Connant stopped at the bend in the corridor. His breath hissed suddenly through his throat. "Great God — " The revolver exploded thunderously; three numbing, palpable waves of sound crashed through the confined corridors. Two more. The revolver dropped to the hard-packed snow of the trail, and Barclay saw the ice-ax shift into defensive position. Connant's powerful body blocked his vision, but beyond he heard something mewing, and, insanely, chuckling. The dogs were quieter; there was a deadly seriousness in their low snarls. Taloned feet scratched at hard-packed snow, broken chains were clinking and tangling.
+Connant stopped at the bend in the corridor.  His breath hissed suddenly through his throat.  "Great God - "  The revolver exploded thunderously; three numbing, palpable waves of sound crashed through the confined corridors.  Two more.  The revolver dropped to the hard-packed snow of the trail, and Barclay saw the ice-ax shift into defensive position.  Connant's powerful body blocked his vision, but beyond he heard something mewing, and, insanely, chuckling.  The dogs were quieter; there was a deadly seriousness in their low snarls.  Taloned feet scratched at hard-packed snow, broken chains were clinking and tangling.
 
-Connant shifted abruptly, and Barclay could see what lay beyond. For a second he stood frozen, then his breath went out in a gusty curse. The Thing launched itself at Connant, the powerful arms of the man swung the ice-ax flatside first at what might have been a hand. It scrunched horribly, and the tattered flesh, ripped by a half-dozen savage huskies, leapt to its feet again. The red eyes blazed with an unearthy hatred, an unearthly, unkillable vitality.
+Connant shifted abruptly, and Barclay could see what lay beyond.  For a second he stood frozen, then his breath went out in a gusty curse.  The Thing launched itself at Connant, the powerful arms of the man swung the ice-ax flatside first at what might have been a hand.  It scrunched horribly, and the tattered flesh, ripped by a half-dozen savage huskies, leapt to its feet again.  The red eyes blazed with an unearthy hatred, an unearthly, unkillable vitality.
 
 Barclay turned the fire extinguisher on it; the blinding, blistering stream of chemical spray confused it, baffled it, together with the savage attacks of the huskies, not for long afraid of anything that did, or could live, held it at bay.
 
-McReady wedged men out of his way and drove down the narrow corridor packed with men unable to reach the scene. There was a sure fore-planned drive to McReady's attack. One of the giant blowtorches used in warming the plane's engines was in his bronzed hands. It roared gustily as he turned the corner and opened the valve. The mad mewing hissed louder. The dogs scrambled back from the three-foot lance of blue-hot flame.
+McReady wedged men out of his way and drove down the narrow corridor packed with men unable to reach the scene.  There was a sure fore-planned drive to McReady's attack.  One of the giant blowtorches used in warming the plane's engines was in his bronzed hands.  It roared gustily as he turned the corner and opened the valve.  The mad mewing hissed louder.  The dogs scrambled back from the three-foot lance of blue-hot flame.
 
-"Bar, get a power cable, run it in somehow. And a handle. We can electrocute this — monster, if I don't incinerate it." McReady spoke with an authority of planned action. Barclay turned down the long corridor to the power plant, but already before him Norris and Van Wall were racing down.
+"Bar, get a power cable, run it in somehow.  And a handle.  We can electrocute this - monster, if I don't incinerate it."  McReady spoke with an authority of planned action.  Barclay turned down the long corridor to the power plant, but already before him Norris and Van Wall were racing down.
 
-Barclay found the cable in the electrical cache in the tunnel wall. In a half minute he was hacking at it, walking back. Van Wall's voice rang out in a warning shout of "Power!" as the emergency gasoline-powered dynamo thudded into action. Half a dozen other men were down there now; the coal, kindling were going into the firebox of the steam power plant. Norris, cursing in a low, deadly monotone, was working with quick, sure fingers on the other end of Barclay's cable, splicing in a contactor in one of the power leads.
+Barclay found the cable in the electrical cache in the tunnel wall.  In a half minute he was hacking at it, walking back.  Van Wall's voice rang out in a warning shout of "Power!" as the emergency gasoline-powered dynamo thudded into action.  Half a dozen other men were down there now; the coal, kindling were going into the firebox of the steam power plant.  Norris, cursing in a low, deadly monotone, was working with quick, sure fingers on the other end of Barclay's cable, splicing in a contactor in one of the power leads.
 
-The dogs had fallen back when Barclay reached the corridor bend, fallen back before a furious monstrosity that glared from baleful red eyes, mewing in trapped hatred. The dogs were a semi-circle of red-dipped muzzles with a fringe of glistening white teeth, whining with a vicious eagerness that near matched the fury of the red eyes. McReady stood confidently alert at the corridor bend, the gustily muttering torch held loose and ready for action in his hands. He stepped aside without moving his eyes from the beast as Barclay came up. There was a slight, tight smile on his lean, bronzed face.
+The dogs had fallen back when Barclay reached the corridor bend, fallen back before a furious monstrosity that glared from baleful red eyes, mewing in trapped hatred.  The dogs were a semi-circle of red-dipped muzzles with a fringe of glistening white teeth, whining with a vicious eagerness that near matched the fury of the red eyes.  McReady stood confidently alert at the corridor bend, the gustily muttering torch held loose and ready for action in his hands.  He stepped aside without moving his eyes from the beast as Barclay came up.  There was a slight, tight smile on his lean, bronzed face.
 
-Norris' voice called down the corridor, and Barclay stepped forward. The cable was taped to the long handle of a snow-shovel, the two conductors split, and held 18 inches apart by a scrap of lumber lashed at right angles across the far end of the handle. Bare copper conductors, charged with 220 volts, glinted in the light of pressure lamps. The Thing mewed and halted and dodged. McReady advanced to Barclay's side. The dogs beyond sensed the plan with the almost-telepathic intelligence of trained huskies. Their whimpering grew shriller, softer, their mincing steps carried them nearer. Abruptly a huge, night-black Alaskan leapt onto the trapped thing. It turned squalling, saber-clawed feet slashing.
+Norris' voice called down the corridor, and Barclay stepped forward.  The cable was taped to the long handle of a snow-shovel, the two conductors split, and held 18 inches apart by a scrap of lumber lashed at right angles across the far end of the handle.  Bare copper conductors, charged with 220 volts, glinted in the light of pressure lamps.  The Thing mewed and halted and dodged.  McReady advanced to Barclay's side.  The dogs beyond sensed the plan with the almost-telepathic intelligence of trained huskies.  Their whimpering grew shriller, softer, their mincing steps carried them nearer.  Abruptly a huge, night-black Alaskan leapt onto the trapped thing.  It turned squalling, saber-clawed feet slashing.
 
-Barclay leapt forward and jabbed. A weird, shrill scream rose and choked out. The smell of burnt flesh in the corridor intensified; greasy smoke curled up. The echoing pound of the gas-electric dynamo down the corridor became a slogging thud.
+Barclay leapt forward and jabbed.  A weird, shrill scream rose and choked out.  The smell of burnt flesh in the corridor intensified; greasy smoke curled up.  The echoing pound of the gas-electric dynamo down the corridor became a slogging thud.
 
-The red eyes clouded over in a stiffening, jerking travesty of a face. Armlike, leglike members quivered and jerked. The dogs leapt forward, and Barclay yanked back his shovel-handled weapon. The thing on the snow did not move as gleaming teeth ripped it open. 
+The red eyes clouded over in a stiffening, jerking travesty of a face.  Armlike, leglike members quivered and jerked.  The dogs leapt forward, and Barclay yanked back his shovel-handled weapon.  The thing on the snow did not move as gleaming teeth ripped it open.
 
 ## Chapter 6
 Garry looked about the crowded room. Thirty-two men, some tensed nervously standing against the wall, some uneasily relaxed, some sitting, most perforce standing, as intimate as sardines. Thirty-two, plus the five engaged in sewing up wounded dogs, made thirty- seven, the total personnel.

@@ -390,139 +390,140 @@ Connant looked at him blankly.  "Huh?  Am I what?"
 "_Are_ you there?"  Blair burst into gales of laughter.  "_Are_ you Connant?  The beast wanted to be a _man_ - not a dog - "
 
 ## Chapter 7
-Dr. Copper rose wearily from the bunk, and washed the hypodermic carefully. The little tinkles it made seemed loud in the packed room, now that Blair's gurgling laughter had finally quieted. Copper looked toward Garry and shook his head slowly. "Hopeless, I'm afraid. I don't think we can ever convince him the thing is dead now."
 
-Norris laughed uncertainly. "I'm not sure you can convince me. Oh, damn you, McReady."
+Dr. Copper rose wearily from the bunk, and washed the hypodermic carefully.  The little tinkles it made seemed loud in the packed room, now that Blair's gurgling laughter had finally quieted.  Copper looked toward Garry and shook his head slowly.  "Hopeless, I'm afraid.  I don't think we can ever convince him the thing is dead now."
 
-"McReady?" Commander Garry turned to look from Norris to McReady curiously.
+Norris laughed uncertainly.  "I'm not sure you can convince me.  Oh, damn you, McReady."
 
-"The nightmares," Norris explained. "He had a theory about the nightmares we had at the Secondary Station after finding that thing."
+"McReady?"  Commander Garry turned to look from Norris to McReady curiously.
 
-"And that was?" Garry looked at McReady levelly.
+"The nightmares," Norris explained.  "He had a theory about the nightmares we had at the Secondary Station after finding that thing."
 
-Norris answered for him, jerkily, uneasily. "That the creature wasn't dead, had a sort of enormously slowed existence, an existence that permitted it, none the less, to be vaguely aware of the passing of time, of our coming, after endless years. I had a dream it could imitate things."
+"And that was?"  Garry looked at McReady levelly.
+
+Norris answered for him, jerkily, uneasily.  "That the creature wasn't dead, had a sort of enormously slowed existence, an existence that permitted it, none the less, to be vaguely aware of the passing of time, of our coming, after endless years.  I had a dream it could imitate things."
 
 "Well," Copper grunted, "it can."
 
-"Don't be an ass," Norris snapped. "That's not what's bothering me. In the dream it could read minds, read thoughts and ideas and mannerisms."
+"Don't be an ass," Norris snapped.  "That's not what's bothering me.  In the dream it could read minds, read thoughts and ideas and mannerisms."
 
-"What's so bad about that? It seems to be worrying you more than the thought of the joy we're going to have with a mad man in an Antarctic camp." Copper nodded toward Blair's sleeping form.
+"What's so bad about that?  It seems to be worrying you more than the thought of the joy we're going to have with a mad man in an Antarctic camp."  Copper nodded toward Blair's sleeping form.
 
-McReady shook his great head slowly. "You know that Connant is Connant, because he not merely looks like Connant — which we're beginning to believe that beast might be able to do — but he thinks like Connant, talks like Connant, moves himself around as Connant does. That takes more than merely a body that looks like him; that takes Connant's own mind, and thoughts and mannerisms. Therefore, though you know that the thing might make itself _look_ like Connant, you aren't much bothered, because you know it has a mind from another world, a totally unhuman mind, that couldn't possibly react and think and talk like a man we know, and do it so well as to fool us for a moment. The idea of the creature imitating one of us is fascinating, but unreal because it is too completely unhuman to deceive us. It doesn't have a human mind."
+McReady shook his great head slowly.  "You know that Connant is Connant, because he not merely looks like Connant - which we're beginning to believe that beast might be able to do - but he thinks like Connant, talks like Connant, moves himself around as Connant does.  That takes more than merely a body that looks like him; that takes Connant's own mind, and thoughts and mannerisms.  Therefore, though you know that the thing might make itself _look_ like Connant, you aren't much bothered, because you know it has a mind from another world, a totally unhuman mind, that couldn't possibly react and think and talk like a man we know, and do it so well as to fool us for a moment.  The idea of the creature imitating one of us is fascinating, but unreal because it is too completely unhuman to deceive us.  It doesn't have a human mind."
 
-"As I said before," Norris repeated, looking steadily at McReady, "you can say the damnedest things at the damnedest times. Will you be so good as to finish that thought — one way or the other?"
+"As I said before," Norris repeated, looking steadily at McReady, "you can say the damnedest things at the damnedest times.  Will you be so good as to finish that thought - one way or the other?"
 
-Kinner, the scar-faced expedition cook, had been standing near Connant. Suddenly he moved down the length of the crowded room toward his familiar galley. He shook the ashes from the galley stove noisily.
+Kinner, the scar-faced expedition cook, had been standing near Connant.  Suddenly he moved down the length of the crowded room toward his familiar galley.  He shook the ashes from the galley stove noisily.
 
-"It would do it no good," said Dr. Copper, softly as though thinking out loud, "to merely look like something it was trying to imitate; it would have to understand its feelings, its reaction. It _is_ unhuman; it has powers of imitation beyond any conception of man. A good actor, by training himself, can imitate another man, another man's mannerisms, well enough to fool most people. Of course no actor could imitate so perfectly as to deceive men who had been living with the imitated one in the complete lack of privacy of an Antarctic camp. That would take a super-human skill."
+"It would do it no good," said Dr. Copper, softly as though thinking out loud, "to merely look like something it was trying to imitate; it would have to understand its feelings, its reaction.  It _is_ unhuman; it has powers of imitation beyond any conception of man.  A good actor, by training himself, can imitate another man, another man's mannerisms, well enough to fool most people.  Of course no actor could imitate so perfectly as to deceive men who had been living with the imitated one in the complete lack of privacy of an Antarctic camp.  That would take a super-human skill."
 
 "Oh, you've got the bug too?" Norris cursed softly.
 
-Connant, standing alone at one end of the room, looked about him wildly, his face white. A gentle eddying of the men had crowded them slowly down toward the other end of the room, so that he stood quite alone. "My God, will you two Jeremiahs shut up?" Connant's voice shook. "What am I? Some kind of a microscopic specimen you're dissecting? Some unpleasant worm you're discussing in the third person?"
+Connant, standing alone at one end of the room, looked about him wildly, his face white.  A gentle eddying of the men had crowded them slowly down toward the other end of the room, so that he stood quite alone.  "My God, will you two Jeremiahs shut up?" Connant's voice shook.  "What am I?  Some kind of a microscopic specimen you're dissecting?  Some unpleasant worm you're discussing in the third person?"
 
-McReady looked up at him; his slowly twisting hand stopped for a moment. "Having a lovely time. Wish you were here. Signed: Everybody.
+McReady looked up at him; his slowly twisting hand stopped for a moment.  "Having a lovely time.  Wish you were here.  Signed: Everybody.
 
-"Connant, if you think you're having a hell of a time, just move over on the other end for a while. You've got one thing we haven't; you know what the answer is. I'll tell you this, right now you're the most feared and respected man in Big Magnet."
+"Connant, if you think you're having a hell of a time, just move over on the other end for a while.  You've got one thing we haven't; you know what the answer is.  I'll tell you this, right now you're the most feared and respected man in Big Magnet."
 
-"Lord, I wish you could see your eyes," Connant gasped. "Stop staring, will you! What the hell are you going to do?"
+"Lord, I wish you could see your eyes," Connant gasped.  "Stop staring, will you!  What the hell are you going to do?"
 
-"Have you any suggestions, Dr. Copper?" Commander Garry asked steadily. "The present situation is impossible."
+"Have you any suggestions, Dr. Copper?" Commander Garry asked steadily.  "The present situation is impossible."
 
-"Oh, is it?" Connant snapped. "Come over here and look at that crowd. By Heaven, they look exactly like that gang of huskies around the corridor bend. Benning, will you stop hefting that damned ice-ax?"
+"Oh, is it?" Connant snapped.  "Come over here and look at that crowd.  By Heaven, they look exactly like that gang of huskies around the corridor bend.  Benning, will you stop hefting that damned ice-ax?"
 
-The coppery blade rang on the floor as the aviation mechanic nervously dropped it. He bent over and picked it up instantly, hefting it slowly, turning it in his hands, his browns eyes moving jerkily about the room.
+The coppery blade rang on the floor as the aviation mechanic nervously dropped it.  He bent over and picked it up instantly, hefting it slowly, turning it in his hands, his brown eyes moving jerkily about the room.
 
-Copper sat down on the bunk beside Blair. The wood creaked noisily in the room. Far down a corridor, a dog yelped in pain, and the dog-drivers' tense voices floated softly back. "Microscopic examination," said the doctor thoughtfully, "would be useless, as Blair pointed out. Considerable time has passed. However, serum tests would be definitive."
+Copper sat down on the bunk beside Blair.  The wood creaked noisily in the room.  Far down a corridor, a dog yelped in pain, and the dog-drivers' tense voices floated softly back.  "Microscopic examination," said the doctor thoughtfully, "would be useless, as Blair pointed out.  Considerable time has passed.  However, serum tests would be definitive."
 
-"Serum tests? What do you mean exactly?" Commander Garry asked.
+"Serum tests?  What do you mean exactly?" Commander Garry asked.
 
-"If I had a rabbit that had been injected with human blood — a poison to rabbits, of course, as is the blood of any animal save that of another rabbit — and the injections continued in increasing doses for some time, the rabbit would be human-immune. If a small quantity of its blood were drawn off, allowed to separate in a test-tube, and to the clear serum, a bit of human blood were added, there would be a visible reaction, proving the blood was human. If cow, or dog blood were added — or any protein material other than that one thing, human blood — no reaction would take place. That would prove definitely."
+"If I had a rabbit that had been injected with human blood - a poison to rabbits, of course, as is the blood of any animal save that of another rabbit - and the injections continued in increasing doses for some time, the rabbit would be human-immune.  If a small quantity of its blood were drawn off, allowed to separate in a test-tube, and to the clear serum, a bit of human blood were added, there would be a visible reaction, proving the blood was human.  If cow, or dog blood were added - or any protein material other than that one thing, human blood - no reaction would take place.  That would prove definitely."
 
-"Can you suggest where I might catch a rabbit for you, Doc?" Norris asked. "That is, nearer than Australia; we don't want to waste time going that far."
+"Can you suggest where I might catch a rabbit for you, Doc?" Norris asked.  "That is, nearer than Australia; we don't want to waste time going that far."
 
-"I know there aren't any rabbits in Antarctica," Copper nodded, "but that is simply the usual animal. Any animal except man will do. A dog for instance. But it will take several days, and due to the greater size of the animal, considerable blood. Two of us will have to contribute."
+"I know there aren't any rabbits in Antarctica," Copper nodded, "but that is simply the usual animal.  Any animal except man will do.  A dog for instance.  But it will take several days, and due to the greater size of the animal, considerable blood.  Two of us will have to contribute."
 
 "Would I do?" Garry asked.
 
-"That will make two," Copper nodded. "I'll get to work on it right away."
+"That will make two," Copper nodded.  "I'll get to work on it right away."
 
-"What about Connant in the meantime?" Kinner demanded. "I'm going out that door and head off for the Ross Sea before I cook for him."
+"What about Connant in the meantime?" Kinner demanded.  "I'm going out that door and head off for the Ross Sea before I cook for him."
 
-"He may be human — " Copper started.
+"He may be human - " Copper started.
 
-Connant burst out in a flood of curses. "Human! _May_ be human, you damned saw bones! What in hell do you think I am?"
+Connant burst out in a flood of curses.  "Human!  _May_ be human, you damned saw bones!  What in hell do you think I am?"
 
-"A monster," Copper snapped sharply. "Now shut up and listen." Connant's face drained of color and he sat down heavily as the indictment was put in words. "Until we know — you know as well as we do that we have reason to question the fact, and only you know how that question is to be answered — we may reasonably be expected to lock you up. If you are — unhuman — you're a lot more dangerous than poor Blair there, and I'm going to see that he's locked up thoroughly. I expect that his next stage will be a violent desire to kill you, all the dogs, and probably all of us. When he wakes, he will be convinced we're all unhuman, and nothing on the planet will ever change his conviction. It would be kinder to let him die, but we can't do that, of course. He's going in one shack, and you can stay in Cosmos House with your cosmic ray apparatus. Which is about what you'd do anyway. I've got to fix up a couple of dogs."
+"A monster," Copper snapped sharply.  "Now shut up and listen."  Connant's face drained of color and he sat down heavily as the indictment was put in words.  "Until we know - you know as well as we do that we have reason to question the fact, and only you know how that question is to be answered - we may reasonably be expected to lock you up.  If you are - unhuman - you're a lot more dangerous than poor Blair there, and I'm going to see that he's locked up thoroughly.  I expect that his next stage will be a violent desire to kill you, all the dogs, and probably all of us.  When he wakes, he will be convinced we're all unhuman, and nothing on the planet will ever change his conviction.  It would be kinder to let him die, but we can't do that, of course.  He's going in one shack, and you can stay in Cosmos House with your cosmic ray apparatus.  Which is about what you'd do anyway.  I've got to fix up a couple of dogs."
 
-Connant nodded bitterly. "I'm human. Hurry that test. Your eyes — Lord, I wish you could see your eyes staring — "
+Connant nodded bitterly.  "I'm human.  Hurry that test.  Your eyes - Lord, I wish you could see your eyes staring - "
 
-Commander Garry watched anxiously as Clark, the doghandler, held the big brown Alaskan husky, while Copper began the injection treatment. The dog was not anxious to cooperate; the needle was painful, and already he'd experienced considerable needle work that morning. Five stitches held closed a slash that ran from his shoulder across the ribs half way down his body. One long fang was broken off short; the missing part was to be found half-buried in the shoulder bone of the monstrous thing on the table in the Ad Building.
+Commander Garry watched anxiously as Clark, the doghandler, held the big brown Alaskan husky, while Copper began the injection treatment.  The dog was not anxious to cooperate; the needle was painful, and already he'd experienced considerable needle work that morning.  Five stitches held closed a slash that ran from his shoulder across the ribs half way down his body.  One long fang was broken off short; the missing part was to be found half-buried in the shoulder bone of the monstrous thing on the table in the Ad Building.
 
-"How long will that take?" Garry asked, pressing his arm gently. It was sore from the prick of the needle Dr. Copper had used to withdraw blood.
+"How long will that take?" Garry asked, pressing his arm gently.  It was sore from the prick of the needle Dr. Copper had used to withdraw blood.
 
-Copper shrugged. "I don't know, to be frank. I know the general method, I've used it on rabbits. But I haven't experimented with dogs. They're big, clumsy animals to work with; naturally rabbits are preferable, and serve ordinarily. In civilized places you can buy a stock of human-immune rabbits from suppliers, and not many investigators take the trouble to prepare their own."
+Copper shrugged.  "I don't know, to be frank.  I know the general method, I've used it on rabbits.  But I haven't experimented with dogs.  They're big, clumsy animals to work with; naturally rabbits are preferable, and serve ordinarily.  In civilized places you can buy a stock of human-immune rabbits from suppliers, and not many investigators take the trouble to prepare their own."
 
 "What do they want with them back there?" Clark asked.
 
-"Criminology is one large field. A says he didn't murder B, but that the blood on his shirt came from killing a chicken. The State makes a test, then it's up to A to explain how it is the blood reacts on human-immune rabbits, but not on chicken-immunes."
+"Criminology is one large field.  A says he didn't murder B, but that the blood on his shirt came from killing a chicken.  The State makes a test, then it's up to A to explain how it is the blood reacts on human-immune rabbits, but not on chicken-immunes."
 
-"What are we going to do with Blair in the meantime?" Garry asked wearily. "It's all right to let him sleep where he is for a while, but when he wakes up — "
+"What are we going to do with Blair in the meantime?"  Garry asked wearily.  "It's all right to let him sleep where he is for a while, but when he wakes up - "
 
-"Barclay and Benning are fitting some bolts on the door of Cosmos House," Copper replied grimly. "Connant's acting like a gentleman. I think perhaps the way the other men look at him makes him rather want privacy. Lord knows, heretofore we've all of us individually prayed for a little privacy."
+"Barclay and Benning are fitting some bolts on the door of Cosmos House," Copper replied grimly.  "Connant's acting like a gentleman.  I think perhaps the way the other men look at him makes him rather want privacy.  Lord knows, heretofore we've all of us individually prayed for a little privacy."
 
-Clark laughed bitterly. "Not any more, thank you. The more the merrier."
+Clark laughed bitterly.  "Not any more, thank you.  The more the merrier."
 
-"Blair," Copper went on, "will also have to have privacy — and locks. He's going to have a pretty definite plan in mind when he wakes up. Ever hear the old story of how to stop hoof-and-mouth disease in cattle?"
+"Blair," Copper went on, "will also have to have privacy - and locks.  He's going to have a pretty definite plan in mind when he wakes up.  Ever hear the old story of how to stop hoof-and-mouth disease in cattle?"
 
-"If there isn't any hoof-and-mouth disease, there won't be any hoof-and-mouth disease," Copper explained. "You get rid of it by killing every animal that exhibits it, and every animal that's been near the diseased animal. Blair's a biologist, and knows that story. He's afraid of this thing we loosed. The answer is probably pretty clear in his mind now. Kill everybody and everything in this camp before a skua gull or a wandering albatross coming in with the spring chances out this way and — catches the disease."
+"If there isn't any hoof-and-mouth disease, there won't be any hoof-and-mouth disease," Copper explained.  "You get rid of it by killing every animal that exhibits it, and every animal that's been near the diseased animal.  Blair's a biologist, and knows that story.  He's afraid of this thing we loosed.  The answer is probably pretty clear in his mind now.  Kill everybody and everything in this camp before a skua gull or a wandering albatross coming in with the spring chances out this way and - catches the disease."
 
-Clark's lips curled in a twisted grin. "Sounds logical to me. If things get too bad — maybe we'd better let Blair get loose. It would save us committing suicide. We might also make something of a vow that if things get bad, we see that that does happen."
+Clark's lips curled in a twisted grin.  "Sounds logical to me.  If things get too bad - maybe we'd better let Blair get loose.  It would save us committing suicide.  We might also make something of a vow that if things get bad, we see that that does happen."
 
-Copper laughed softly. "The last man alive in Big Magnet — wouldn't be a man," he pointed out. "Somebody's got to kill those — creatures that don't desire to kill themselves, you know. We don't have enough thermite to do it all at once, and the decanite explosive wouldn't help much. I have an idea that even small pieces of one of those beings would be self-sufficient."
+Copper laughed softly.  "The last man alive in Big Magnet - wouldn't be a man," he pointed out.  "Somebody's got to kill those - creatures that don't desire to kill themselves, you know.  We don't have enough thermite to do it all at once, and the decanite explosive wouldn't help much.  I have an idea that even small pieces of one of those beings would be self-sufficient."
 
-"If," said Garry thoughtfully, "they can modify their protoplasm at will, won't they simply modify themselves to birds and fly away? They can read all about birds, and imitate their structure without even meeting them. Or imitate, perhaps, birds of their home planet."
+"If," said Garry thoughtfully, "they can modify their protoplasm at will, won't they simply modify themselves to birds and fly away?  They can read all about birds, and imitate their structure without even meeting them.  Or imitate, perhaps, birds of their home planet."
 
-Copper shook his head, and helped Clark to free the dog. "Man studied birds for centuries, trying to learn how to make a machine to fly like them. He never did do the trick; his final success came when he broke away entirely and tried new methods. Knowing the general idea, and knowing the detailed structure of wing and bone and nerve-tissue is something far, far different. And as for otherworld birds, perhaps, in fact very probably, the atmospheric conditions here are so vastly different that their birds couldn't fly. Perhaps, even, the being came from a planet like Mars with such a thin atmosphere that there were no birds."
+Copper shook his head, and helped Clark to free the dog.  "Man studied birds for centuries, trying to learn how to make a machine to fly like them.  He never did do the trick; his final success came when he broke away entirely and tried new methods.  Knowing the general idea, and knowing the detailed structure of wing and bone and nerve-tissue is something far, far different.  And as for otherworld birds, perhaps, in fact very probably, the atmospheric conditions here are so vastly different that their birds couldn't fly.  Perhaps, even, the being came from a planet like Mars with such a thin atmosphere that there were no birds."
 
-Barclay came into the building, trailing a length of airplane control cable. "It's finished, Doc. Cosmo House can't be opened from the inside. Now where do we put Blair?"
+Barclay came into the building, trailing a length of airplane control cable.  "It's finished, Doc.  Cosmo House can't be opened from the inside.  Now where do we put Blair?"
 
-Copper looked toward Garry. "There wasn't any biology building. I don't know where we can isolate him."
+Copper looked toward Garry.  "There wasn't any biology building.  I don't know where we can isolate him."
 
-"How about East Cache?" Garry said after a moment's thought. "Will Blair be able to look after himself — or need attention?"
+"How about East Cache?" Garry said after a moment's thought.  "Will Blair be able to look after himself - or need attention?"
 
-"He'll be capable enough. We'll be the ones to watch out," Copper assured him grimly. "Take a stove, a couple of bags of coal, necessary supplies and a few tools to fix it up. Nobody's been out there since last fall, have they?"
+"He'll be capable enough.  We'll be the ones to watch out," Copper assured him grimly.  "Take a stove, a couple of bags of coal, necessary supplies and a few tools to fix it up.  Nobody's been out there since last fall, have they?"
 
-Garry shook his head. "If he gets noisy — I thought that might be a good idea."
+Garry shook his head.  "If he gets noisy - I thought that might be a good idea."
 
-Barclay hefted the tools he was carrying and looked up at Garry. "If the muttering he's doing now is any sign, he's going to sing away the night hours. And we won't like his song."
+Barclay hefted the tools he was carrying and looked up at Garry.  "If the muttering he's doing now is any sign, he's going to sing away the night hours.  And we won't like his song."
 
 "What's he saying?" Copper asked.
 
-Barclay shook his head. "I didn't care to listen much. You can if you want to. But I gathered that the blasted idiot had all the dreams McReady had, and a few more. He slept beside the thing when we stopped on the trail coming in from Secondary Magnetic, remember. He dreamt the thing was alive, and dreamt more details. And — damn his soul — knew it wasn't all dreaam, or had reason to. He knew it had telepathic powers that were stirring vaguely, and that it could not only read minds, but project thoughts. They weren't dreams, you see. They were stray thoughts that thing was broadcasting, the way Blair's broadcasting his thoughts now — a sort of telepathic muttering in its sleep. That's why he knew so much about its powers. I guess you and I, Doc, weren't so sensitive — if you want to believe in telepathy."
+Barclay shook his head.  "I didn't care to listen much.  You can if you want to.  But I gathered that the blasted idiot had all the dreams McReady had, and a few more.  He slept beside the thing when we stopped on the trail coming in from Secondary Magnetic, remember.  He dreamt the thing was alive, and dreamt more details.  And - damn his soul - knew it wasn't all dreaam, or had reason to.  He knew it had telepathic powers that were stirring vaguely, and that it could not only read minds, but project thoughts.  They weren't dreams, you see.  They were stray thoughts that thing was broadcasting, the way Blair's broadcasting his thoughts now - a sort of telepathic muttering in its sleep.  That's why he knew so much about its powers.  I guess you and I, Doc, weren't so sensitive - if you want to believe in telepathy."
 
-"I have to," Copper sighed. "Dr. Rhine of Duke University has shown that it exists, shown that some are much more sensitive than others."
+"I have to," Copper sighed.  "Dr. Rhine of Duke University has shown that it exists, shown that some are much more sensitive than others."
 
-"Well, if you want to learn a lot of details, go listen in on Blair's broadcast. He's driven most of the boys out of the Ad Building; Kinner's rattling pans like coal going down a chute. When he can't rattle a pan, he shakes ashes.
+"Well, if you want to learn a lot of details, go listen in on Blair's broadcast.  He's driven most of the boys out of the Ad Building; Kinner's rattling pans like coal going down a chute.  When he can't rattle a pan, he shakes ashes.
 
 "By the way, Commander, what are we going to do this spring, now the planes are out of it?"
 
-Garry sighed. "I'm afraid our expedition is going to be a loss. We cannot divide our strength now.
+Garry sighed.  "I'm afraid our expedition is going to be a loss.  We cannot divide our strength now."
 
-"It won't be a loss — if we continue to live, and come out of this," Copper promised him. "The find we've made, if we can get it under control, is important enough. The cosmic ray data, magnetic work, and atmospheric work won't be greatly hindered."
+"It won't be a loss - if we continue to live, and come out of this," Copper promised him.  "The find we've made, if we can get it under control, is important enough.  The cosmic ray data, magnetic work, and atmospheric work won't be greatly hindered."
 
-Garry laughed mirthlessly. "I was just thinking of the radio broadcasts. Telling half the world about the wonderful results of our exploration flights, trying to fool men like Byrd and Ellsworth back home there that we're doing something."
+Garry laughed mirthlessly.  "I was just thinking of the radio broadcasts.  Telling half the world about the wonderful results of our exploration flights, trying to fool men like Byrd and Ellsworth back home there that we're doing something."
 
-Copper nodded gravely. "They'll know something's wrong. But men like that have judgment enough to know we wouldn't do tricks without some sort of reason, and will wait for our return to judge us. I think it comes to this: men who know enough to recognize our deception will wait for our return. Men who haven't discretion and faith enough to wait will not have the experience to detect any fraud. We know enough of the conditions here to put through a good bluff."
+Copper nodded gravely.  "They'll know something's wrong.  But men like that have judgment enough to know we wouldn't do tricks without some sort of reason, and will wait for our return to judge us.  I think it comes to this: men who know enough to recognize our deception will wait for our return.  Men who haven't discretion and faith enough to wait will not have the experience to detect any fraud.  We know enough of the conditions here to put through a good bluff."
 
-"Just so they don't send 'rescue' expeditions," Garry prayed. "When — if — we're ever ready to come out, we'll have to send word to Captain Forsythe to bring a stock of magnetos with him when he comes down. But — never mind that."
+"Just so they don't send 'rescue' expeditions," Garry prayed.  "When - if - we're ever ready to come out, we'll have to send word to Captain Forsythe to bring a stock of magnetos with him when he comes down.  But - never mind that."
 
-"You mean if we don't come out?" asked Barclay. "I was wondering if a nice running account of an eruption or an earthquake via radio — with a swell windup by using a stick of decanite under the microphone — would help. Nothing, of course, will entirely keep people out. One of those swell, melodramatic 'last-man-alive-scenes' might make 'em go easy though."
+"You mean if we don't come out?" asked Barclay.  "I was wondering if a nice running account of an eruption or an earthquake via radio - with a swell windup by using a stick of decanite under the microphone - would help.  Nothing, of course, will entirely keep people out.  One of those swell, melodramatic 'last-man-alive-scenes' might make 'em go easy though."
 
-Garry smiled with genuine humor. "Is everybody in camp trying to figure that out too?"
+Garry smiled with genuine humor.  "Is everybody in camp trying to figure that out too?"
 
-Copper laughed. "What do you think, Garry? We're confident we can win out. But not too easy about it, I guess."
+Copper laughed.  "What do you think, Garry?  We're confident we can win out.  But not too easy about it, I guess."
 
-Clark grinned up from the dog he was petting into calmness. "Confident, did you say, Doc?" 
+Clark grinned up from the dog he was petting into calmness.  "Confident, did you say, Doc?"
 
 ## Chapter 8
 Blair moved restlessly around the small shack. His eyes jerked and quivered in vague, fleeting glances at the four men with him; Barclay, six feet tall and weighing over 190 pounds; McReady, a bronze giant of a man; Dr. Copper, short, squatly powerful; and Benning, five-feet-ten of wiry strength.

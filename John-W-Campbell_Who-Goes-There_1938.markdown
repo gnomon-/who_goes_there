@@ -796,115 +796,116 @@ Norris stood at the door as McReady had asked.  Garry sat down quietly in the bu
 "We," he announced, "haven't got enough grief here already.  Somebody's tried to help us out.  Kinner has a knife in his throat, which was why he stopped singing, probably.  We've got monsters, madmen and murderers.  Any more 'M's' you can think of, Caldwell?  If there are, we'll probably have 'em before long."
 
 ## Chapter 11
+
 "Is Blair loose?" someone asked.
 
-"Blair is not loose. Or he flew in. If there's any doubt about where our gentle helper came from — this may clear it up." Van Hull held a footlong, thin-bladed knife in a cloth. The wooden handle was half-burnt, charred with the peculiar pattern of the top of the galley stove.
+"Blair is not loose.  Or he flew in.  If there's any doubt about where our gentle helper came from - this may clear it up."  Van Hull held a footlong, thin-bladed knife in a cloth.  The wooden handle was half-burnt, charred with the peculiar pattern of the top of the galley stove.
 
-Clark stared at it. "I did that this afternoon. I forgot the damn thing and left it on the stove."
+Clark stared at it.  "I did that this afternoon.  I forgot the damn thing and left it on the stove."
 
-Van Wall nodded. "I smelled it, if you remember. I knew the knife came from the galley."
+Van Wall nodded.  "I smelled it, if you remember.  I knew the knife came from the galley."
 
-"I wonder," said Benning, looking around at the party warily, "how many more monsters have we? If somebody could slip out of his place, go back of the screen to the galley and then down to the Cosmos House and back — he did come back, didn't he? Yes — everybody's here. Well, if one of the gang could do all that — "
+"I wonder," said Benning, looking around at the party warily, "how many more monsters have we?  If somebody could slip out of his place, go back of the screen to the galley and then down to the Cosmos House and back - he did come back, didn't he?  Yes - everybody's here.  Well, if one of the gang could do all that - "
 
-"Maybe a monster did it," Garry suggested quietly. "There's that possibility."
+"Maybe a monster did it," Garry suggested quietly.  "There's that possibility."
 
-"The monster, as you pointed out today, has only men left to imitate. Would he decrease his — supply, shall we say?" Van Wall pointed out. "No, we just have a plain, ordinary louse, a murderer to deal with. Ordinarily we'd call him an 'inhuman murderer' I suppose, but we have to distinguish now. We have inhuman murderers, and now we have human murderers. Or one at least."
+"The monster, as you pointed out today, has only men left to imitate.  Would he decrease his - supply, shall we say?" Van Wall pointed out.  "No, we just have a plain, ordinary louse, a murderer to deal with.  Ordinarily we'd call him an 'inhuman murderer' I suppose, but we have to distinguish now.  We have inhuman murderers, and now we have human murderers.  Or one at least."
 
-"There's one less human," Norris said softly. "Maybe the monsters have the balance of power now."
+"There's one less human," Norris said softly.  "Maybe the monsters have the balance of power now."
 
-"Never mind that," McReady sighed and turned to Barclay. "Bar, will you get your electric gadget? I'm going to make certain — "
+"Never mind that," McReady sighed and turned to Barclay.  "Bar, will you get your electric gadget?  I'm going to make certain - "
 
-Barclay turned down the corridor to get the pronged electrocuter, while McReady and Van Wall went back toward Cosmos House. Barclay followed them in some thirty seconds.
+Barclay turned down the corridor to get the pronged electrocuter, while McReady and Van Wall went back toward Cosmos House.  Barclay followed them in some thirty seconds.
 
-The corridor to Cosmos House twisted, as did nearly all corridors in Big Magnet, and Norris stood at the entrance again. But they heard, rather muffled McReady's sudden shout. There was a savage scurry of blows, dull _ch-thunk, shluff_ sounds. "Bar — Bar — " And a curious, savage mewing scream, silenced before even quick-moving Norris had reached the bend.
+The corridor to Cosmos House twisted, as did nearly all corridors in Big Magnet, and Norris stood at the entrance again.  But they heard, rather muffled McReady's sudden shout.  There was a savage scurry of blows, dull _ch-thunk, shluff_ sounds.  "Bar - Bar - "  And a curious, savage mewing scream, silenced before even quick-moving Norris had reached the bend.
 
-Kinner — or what had been Kinner — lay on the floor; cut half in two by the great knife McReady had had. The meteorologist stood against the wall, the knife dripping red in his hand. Van Wall was stirring vaguely on the floor, moaning, his hand half-consciously rubbing at his jaw. Barclay an unutterably savage gleam in his eyes, was methodically leaning on the pronged weapon in his hand, jabbing, jabbing.
+Kinner - or what had been Kinner - lay on the floor; cut half in two by the great knife McReady had had.  The meteorologist stood against the wall, the knife dripping red in his hand.  Van Wall was stirring vaguely on the floor, moaning, his hand half-consciously rubbing at his jaw.  Barclay an unutterably savage gleam in his eyes, was methodically leaning on the pronged weapon in his hand, jabbing, jabbing.
 
-Kinner's arms had developed a queer, scaly fur, and the flesh had twisted. The fingers had shortened, the hand rounded, the fingernails become three-inch long things of dull red horn, keened to steel-hard razor-sharp talons.
+Kinner's arms had developed a queer, scaly fur, and the flesh had twisted.  The fingers had shortened, the hand rounded, the fingernails become three-inch long things of dull red horn, keened to steel-hard razor-sharp talons.
 
-McReady raised his head, looked at the knife in his hand and dropped it. "Well, whoever did it can speak up now. He was an inhuman murderer at that — in that he murdered an inhuman. I swear by all that's holy, Kinner was a lifeless corpse on the floor here when we arrived. But when it found we were going to jab it with the power — it changed."
+McReady raised his head, looked at the knife in his hand and dropped it.  "Well, whoever did it can speak up now.  He was an inhuman murderer at that - in that he murdered an inhuman.  I swear by all that's holy, Kinner was a lifeless corpse on the floor here when we arrived.  But when it found we were going to jab it with the power - it changed."
 
-Norris stared unsteadily. "Oh. Lord, those things can act. Ye gods — sitting in here for hours, mouthing prayers to a God it hated! Shouting hymns in a cracked voice — hymns about a Church it never knew. Driving us mad with its ceaseless howling — "
+Norris stared unsteadily.  "Oh. Lord, those things can act.  Ye gods - sitting in here for hours, mouthing prayers to a God it hated!  Shouting hymns in a cracked voice - hymns about a Church it never knew.  Driving us mad with its ceaseless howling - "
 
-"Well. Speak up, whoever did it, You didn't know it, but you did the camp a favor. And I want to know how in blazes you got out of that room without anyone seeing you. It might help in guarding ourselves."
+"Well.  Speak up, whoever did it.  You didn't know it, but you did the camp a favor.  And I want to know how in blazes you got out of that room without anyone seeing you.  It might help in guarding ourselves."
 
-"His screaming — his singing. Even the sound projector couldn't drown it." Clark shivered. "It was a monster."
+"His screaming - his singing.  Even the sound projector couldn't drown it."  Clark shivered.  "It was a monster."
 
-"Oh," said Van Wall in sudden comprehension. "You were sitting right next to the door, weren't you! And almost behind the projection screen already."
+"Oh," said Van Wall in sudden comprehension.  "You were sitting right next to the door, weren't you!  And almost behind the projection screen already."
 
-Clark nodded dumbly. "He — it's quiet now. It's a dead — Mac, your test's no damn good. It was dead anyway, monster or man, it was dead."
+Clark nodded dumbly.  "He - it's quiet now.  It's a dead - Mac, your test's no damn good.  It was dead anyway, monster or man, it was dead."
 
-McReady chuckled softly. "Boys, meet Clark, the only one we know is human! Meet Clark, the one who proves he's human by trying to commit murder-and failing. Will the rest of you please refrain from trying to prove you're human for a while? I think we may have another test."
+McReady chuckled softly.  "Boys, meet Clark, the only one we know is human!  Meet Clark, the one who proves he's human by trying to commit murder-and failing.  Will the rest of you please refrain from trying to prove you're human for a while?  I think we may have another test."
 
-"A test!" Connant snapped joyfully, then his face sagged in disappointment. "I suppose it's another either-way-you-want-it."
+"A test!" Connant snapped joyfully, then his face sagged in disappointment.  "I suppose it's another either-way-you-want-it."
 
-"No," said McReady steadily. "Look sharp and be careful. Come into the Ad Building. Barclay, bring your electrocuter. And somebody — Dutton — stand with Barclay to make sure he does it. Watch every neighbor, for by the Hell these monsters come from, I've got something, and they know it. They're going to get dangerous!"
+"No," said McReady steadily.  "Look sharp and be careful.  Come into the Ad Building.  Barclay, bring your electrocuter.  And somebody - Dutton - stand with Barclay to make sure he does it.  Watch every neighbor, for by the Hell these monsters come from, I've got something, and they know it.  They're going to get dangerous!"
 
-The group tensed abruptly. An air of crushing menace entered into every man's body, sharply they looked at each other. More keenly than ever before — _is that man next to me an inhuman monster_?
+The group tensed abruptly.  An air of crushing menace entered into every man's body, sharply they looked at each other.  More keenly than ever before - _is that man next to me an inhuman monster_?
 
-"What is it?" Garry asked, as they stood again in the main room. "How long will it take?"
+"What is it?" Garry asked, as they stood again in the main room.  "How long will it take?"
 
-"I don't know exactly," said McReady, his voice brittle with angry determination. "But I _know_ it will work, and no two ways about it. It depends on a basic quality of the _monsters_, not on us. '_Kinner_' just convinced me." He stood heavy and solid in bronzed immobility, completely sure of himself again at last.
+"I don't know exactly," said McReady, his voice brittle with angry determination.  "But I _know_ it will work, and no two ways about it.  It depends on a basic quality of the _monsters_, not on us.  '_Kinner_' just convinced me."  He stood heavy and solid in bronzed immobility, completely sure of himself again at last.
 
-"This," said Barclay, hefting the woodenhandled weapon, tipped with its two sharppointed, charged conductors, "is going to be rather necessary, I take it. Is the power plant assured?"
+"This," said Barclay, hefting the wooden-handled weapon, tipped with its two sharp-pointed, charged conductors, "is going to be rather necessary, I take it.  Is the power plant assured?"
 
-Dutton nodded sharply. "The automatic stoker bin is full. The gas power plant is on stand-by. Van Wall and I set it for the movie operation and — we've checked it over rather carefully several times, you know. Anything those wires touch, dies," he assured them grimly, "_I_ know that."
+Dutton nodded sharply.  "The automatic stoker bin is full.  The gas power plant is on stand-by.  Van Wall and I set it for the movie operation and - we've checked it over rather carefully several times, you know.  Anything those wires touch, dies," he assured them grimly, "_I_ know that."
 
-Dr. Copper stirred vaguely in his bunk, rubbed his eyes with fumbling hand. He sat up slowly, blinked his eyes blurred with sleep and drugs, widened with an unutterable horror of drug-ridden nightmares. "Garry," he mumbled, "Garry — listen. Selfish — from hell they came, and hellish shellfish — I mean self — Do I? What do I mean?" he sank back in his bunk, and snored softly.
+Dr. Copper stirred vaguely in his bunk, rubbed his eyes with fumbling hand.  He sat up slowly, blinked his eyes blurred with sleep and drugs, widened with an unutterable horror of drug-ridden nightmares.  "Garry," he mumbled, "Garry - listen.  Selfish - from hell they came, and hellish shellfish - I mean self - Do I?  What do I mean?" he sank back in his bunk, and snored softly.
 
-McReady looked at him thoughtfully. "We'll know presently," he nodded slowly. "But selfish is what you mean all right. You may have thought of that, half-sleeping, dreaming there. I didn't stop to think what dreams you might be having. But that's all right. Selfish is the word. They must be, you see." He turned to the men in the cabin, tense, silent men staring with wolfish eyes each at his neighbor. "Selfish, and as Dr. Copper said _every part is a whole_. Every piece is self-sufficient, an animal in itself.
+McReady looked at him thoughtfully.  "We'll know presently," he nodded slowly.  "But selfish is what you mean all right.  You may have thought of that, half-sleeping, dreaming there.  I didn't stop to think what dreams you might be having.  But that's all right.  Selfish is the word.  They must be, you see."  He turned to the men in the cabin, tense, silent men staring with wolfish eyes each at his neighbor.  "Selfish, and as Dr. Copper said _every part is a whole_.  Every piece is self-sufficient, an animal in itself.
 
-"That, and one other thing, tell the story. There's nothing mysterious about blood; it's just as normal a body tissue as a piece of muscle, or a piece of liver. But it hasn't so much connective tissue, though it has millions, billions of lifecells."
+"That, and one other thing, tell the story.  There's nothing mysterious about blood; it's just as normal a body tissue as a piece of muscle, or a piece of liver.  But it hasn't so much connective tissue, though it has millions, billions of life-cells."
 
-McReady's great bronze beard ruffled in a grim smile. "This is satisfying, in a way. I'm pretty-sure we humans still outnumber you — others. Others standing here. And we have what you, your otherworld race, evidently doesn't. Not an imitated, but a bred-in-the-bone instinct, a driving, unquenchable fire that's genuine. We'll fight, fight with a ferocity you may attempt to imitate, but you'll never equal! We're human. We're real. You're imitations, false to the core of your every cell.
+McReady's great bronze beard ruffled in a grim smile.  "This is satisfying, in a way.  I'm pretty-sure we humans still outnumber you - others.  Others standing here.  And we have what you, your other-world race, evidently doesn't.  Not an imitated, but a bred-in-the-bone instinct, a driving, unquenchable fire that's genuine.  We'll fight, fight with a ferocity you may attempt to imitate, but you'll never equal!  We're human.  We're real.  You're imitations, false to the core of your every cell.
 
-"All right. It's a showdown now. You know. You, with your mind reading. You've lifted the idea from my brain. You can't do a thing about it.
+"All right.  It's a showdown now.  You know.  You, with your mind reading.  You've lifted the idea from my brain.  You can't do a thing about it.
 
-"Standing here — "
+"Standing here - "
 
-"Let it pass. Blood is tissue. They have to bleed, if they don't bleed when cut, then, by Heaven, they're phony! Phony from hell! If they bleed — then that blood, separated from them, is an individual — _a newly formed individual in its own right, just as they, split, all of them, from one original, are individuals_!
+"Let it pass.  Blood is tissue.  They have to bleed, if they don't bleed when cut, then, by Heaven, they're phony!  Phony from hell!  If they bleed - then that blood, separated from them, is an individual - _a newly formed individual in its own right, just as they, split, all of them, from one original, are individuals_!
 
-"Get it, Van? See the answer, Bar?"
+"Get it, Van?  See the answer, Bar?"
 
-Van Wall laughed very softly. "The blood — the blood will not obey. It's a new individual, with all the desire to protect its own life that the original — the main mass from which it was split — has. The _blood_ will live — and try to crawl away from a hot needle, say!"
+Van Wall laughed very softly.  "The blood - the blood will not obey.  It's a new individual, with all the desire to protect its own life that the original - the main mass from which it was split - has.  The _blood_ will live - and try to crawl away from a hot needle, say!"
 
-McReady picked up the scalpel from the table. From the cabinet, he took a rack of test-tubes, a tiny alcohol lamp, and a length of platinum wire set in a little glass rod. A smile of grim satisfaction rode his lips. For a moment he glanced up at those around him. Barclay and Dutton moved toward him slowly, the wooden-handled electric instrument alert.
+McReady picked up the scalpel from the table.  From the cabinet, he took a rack of test-tubes, a tiny alcohol lamp, and a length of platinum wire set in a little glass rod.  A smile of grim satisfaction rode his lips.  For a moment he glanced up at those around him.  Barclay and Dutton moved toward him slowly, the wooden-handled electric instrument alert.
 
-"Dutton," said McReady, "suppose you stand over by the splice there where you've connected that in. Just make sure nothing pulls it loose."
+"Dutton," said McReady, "suppose you stand over by the splice there where you've connected that in.  Just make sure nothing pulls it loose."
 
-Dutton moved away. "Now, Van, suppose you be first on this."
+Dutton moved away.  "Now, Van, suppose you be first on this."
 
-White-faced, Van Wall stepped forward. With a delicate precision, McReady cut a vein in the base of his thumb. Van Wall winced slightly, then held steady as a half inch of bright blood collected in the tube. McReady put the tube in the rack, gave Van Wall a bit of alum, and indicated the iodine bottle.
+White-faced, Van Wall stepped forward.  With a delicate precision, McReady cut a vein in the base of his thumb.  Van Wall winced slightly, then held steady as a half inch of bright blood collected in the tube.  McReady put the tube in the rack, gave Van Wall a bit of alum, and indicated the iodine bottle.
 
-Van Wall stood motionlessly watching. McReady heated the platinum wire in the alcohol lamp flame, then dipped it into the tube. it hissed softly. Five times he repeated the test. "Human, I'd say." McReady sighed, and straightened. "As yet, my theory hasn't been actually proven — but I have hopes. I have hopes.
+Van Wall stood motionlessly watching.  McReady heated the platinum wire in the alcohol lamp flame, then dipped it into the tube.  it hissed softly.  Five times he repeated the test.  "Human, I'd say." McReady sighed, and straightened.  "As yet, my theory hasn't been actually proven - but I have hopes.  I have hopes.
 
-"Don't, by the way, get too interested in this. We have with us some unwelcome ones, no doubt, Van, will you relieve Barclay at the switch? Thanks. O.K., Barclay, and may I say I hope you stay with us? You're a damned good guy."
+"Don't, by the way, get too interested in this.  We have with us some unwelcome ones, no doubt, Van, will you relieve Barclay at the switch?  Thanks.  O.K., Barclay, and may I say I hope you stay with us?  You're a damned good guy."
 
-Barclay grinned uncertainly; winced under the keen edge of the scalpel. Presently, smiling widely, he retrieved his long-handled weapon.
+Barclay grinned uncertainly; winced under the keen edge of the scalpel.  Presently, smiling widely, he retrieved his long-handled weapon.
 
-"Mr. Samuel Dutt — BAR!"
+"Mr. Samuel Dutt - BAR!"
 
-The tensity was released in that second. Whatever of hell the monsters may have had within them, the men in that instant matched it. Barclay had no chance to move his weapon as a score of men poured down on that thing that had seemed Dutton. It mewed, and spat, and tried to grow fangs — and was a hundred broken, torn pieces. Without knives, or any weapon save the brute-given strength of a staff of picked men, the thing was crushed, rent.
+The tensity was released in that second.  Whatever of hell the monsters may have had within them, the men in that instant matched it.  Barclay had no chance to move his weapon as a score of men poured down on that thing that had seemed Dutton.  It mewed, and spat, and tried to grow fangs - and was a hundred broken, torn pieces.  Without knives, or any weapon save the brute-given strength of a staff of picked men, the thing was crushed, rent.
 
-Slowly they picked themselves up, their eyes smoldering, very quiet in their emotions. A curious wrinkling of their lips betrayed a species of nervousness.
+Slowly they picked themselves up, their eyes smoldering, very quiet in their emotions.  A curious wrinkling of their lips betrayed a species of nervousness.
 
-Barclay went over with the electric weapon. Things smoldered and stank. The caustic acid Van Wall dropped on each spilled drop of blood gave off tickling, cough-provoking fumes.
+Barclay went over with the electric weapon.  Things smoldered and stank.  The caustic acid Van Wall dropped on each spilled drop of blood gave off tickling, cough-provoking fumes.
 
-McReady grinned, his deep-set eyes alight and dancing. "Maybe," he said softly, "I underrated man's abilities when I said nothing human could have the ferocity in the eyes of that thing we found. I wish we could have the opportunity to treat in a more befitting manner these things. Something with boiling oil, or melted lead in it, or maybe slow roasting in the power boiler. When I think what a man Dutton was —
+McReady grinned, his deep-set eyes alight and dancing.  "Maybe," he said softly, "I underrated man's abilities when I said nothing human could have the ferocity in the eyes of that thing we found.  I wish we could have the opportunity to treat in a more befitting manner these things.  Something with boiling oil, or melted lead in it, or maybe slow roasting in the power boiler.  When I think what a man Dutton was -
 
-"Never mind. My theory is confirmed by — by one who knew? Well, Van Wall and Barclay are proven. I think, then, that I'll try to show you what I already know. That I too am human." McReady swished the scalpel in absolute alcohol, burned it off the metal blade, and cut the base of his thumb expertly.
+"Never mind.  My theory is confirmed by - by one who knew?  Well, Van Wall and Barclay are proven.  I think, then, that I'll try to show you what I already know.  That I too am human."  McReady swished the scalpel in absolute alcohol, burned it off the metal blade, and cut the base of his thumb expertly.
 
-Twenty seconds later he looked up from the desk at the waiting men. There were more grins out there now, friendly grins, yet with all, something else in the eyes.
+Twenty seconds later he looked up from the desk at the waiting men.  There were more grins out there now, friendly grins, yet with all, something else in the eyes.
 
-"Connant," McReady laughed softly, "was right. The huskies watching that thing in the corridor bend had nothing on you. Wonder why we think only the wolf blood has the right to ferocity? Maybe on spontaneous viciousness a wolf takes tops, but after these seven days — abandon all hope, ye wolves who enter here!
+"Connant," McReady laughed softly, "was right.  The huskies watching that thing in the corridor bend had nothing on you.  Wonder why we think only the wolf blood has the right to ferocity?  Maybe on spontaneous viciousness a wolf takes tops, but after these seven days - abandon all hope, ye wolves who enter here!
 
-"Maybe we can save time. Connant, would you step for — "
+"Maybe we can save time.  Connant, would you step for - "
 
-Again Barclay was too slow. There were more grins, less tensity still, when Barclay and Van Wall finished their work.
+Again Barclay was too slow.  There were more grins, less tensity still, when Barclay and Van Wall finished their work.
 
-Garry spoke in a low, bitter voice. "Connant was one of the finest men we had here — and five minutes ago I'd have sworn he was a man. Those damnable things are more than imitation." Garry shuddered and sat back in his bunk.
+Garry spoke in a low, bitter voice.  "Connant was one of the finest men we had here - and five minutes ago I'd have sworn he was a man.  Those damnable things are more than imitation."  Garry shuddered and sat back in his bunk.
 
-And thirty seconds later, Garry's blood shrank from the hot platinum wire, and struggled to escape the tube, struggled as frantically as a suddenly feral, red-eyed, dissolving imitation of Garry struggled to dodge the snake-tongue weapon Barclay advanced at him, white faced and sweating. The Thing in the test-tube screamed with a tin, tinny voice as McReady dropped it into the glowing coal of the galley stove. 
+And thirty seconds later, Garry's blood shrank from the hot platinum wire, and struggled to escape the tube, struggled as frantically as a suddenly feral, red-eyed, dissolving imitation of Garry struggled to dodge the snake-tongue weapon Barclay advanced at him, white faced and sweating.  The Thing in the test-tube screamed with a tin, tinny voice as McReady dropped it into the glowing coal of the galley stove.
 
 ## Chapter 12
 "The last of it?" Dr. Copper looked down from his bunk with bloodshot, saddened eyes. "Fourteen of them — "

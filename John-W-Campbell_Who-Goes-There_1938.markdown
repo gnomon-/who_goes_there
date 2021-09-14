@@ -908,107 +908,108 @@ Garry spoke in a low, bitter voice.  "Connant was one of the finest men we had h
 And thirty seconds later, Garry's blood shrank from the hot platinum wire, and struggled to escape the tube, struggled as frantically as a suddenly feral, red-eyed, dissolving imitation of Garry struggled to dodge the snake-tongue weapon Barclay advanced at him, white faced and sweating.  The Thing in the test-tube screamed with a tin, tinny voice as McReady dropped it into the glowing coal of the galley stove.
 
 ## Chapter 12
-"The last of it?" Dr. Copper looked down from his bunk with bloodshot, saddened eyes. "Fourteen of them — "
 
-McReady nodded shortly. "In some ways — if only we could have permanently prevented their spreading — I'd like to have even the imitations back. Commander Garry — Connant — Dutton — Clark — "
+"The last of it?" Dr. Copper looked down from his bunk with bloodshot, saddened eyes.  "Fourteen of them - "
+
+McReady nodded shortly.  "In some ways - if only we could have permanently prevented their spreading - I'd like to have even the imitations back.  Commander Garry - Connant - Dutton - Clark - "
 
 "Where are they taking those things?" Copper nodded to the stretcher Barclay and Norris were carrying out.
 
-"Outside. Outside on the ice, where they've got fifteen smashed crates, half a ton of coal, and presently will add ten gallons of kerosene. We've dumped acid on every spilled drop, every torn fragment. We're going to incinerate those."
+"Outside.  Outside on the ice, where they've got fifteen smashed crates, half a ton of coal, and presently will add ten gallons of kerosene.  We've dumped acid on every spilled drop, every torn fragment.  We're going to incinerate those."
 
-"Sounds like a good plan." Copper nodded wearily. "I wonder, you haven't said whether Blair — "
+"Sounds like a good plan."  Copper nodded wearily.  "I wonder, you haven't said whether Blair - "
 
-McReady started. "We forgot him! We had so much else! I wonder — do you suppose we can cure him now?"
+McReady started.  "We forgot him!  We had so much else!  I wonder - do you suppose we can cure him now?"
 
-"If —" began Dr. Copper, and stopped meaningly.
+"If -" began Dr. Copper, and stopped meaningly.
 
-McReady started a second time. "Even a madman. It imitated Kinner and his praying hysteria — " McReady turned toward Van Wall at the long table. "Van, we've got to make an expedition to Blair's shack."
+McReady started a second time.  "Even a madman.  It imitated Kinner and his praying hysteria - "  McReady turned toward Van Wall at the long table.  "Van, we've got to make an expedition to Blair's shack."
 
-Van looked up sharply, the frown of worry faded for an instant in surprised remembrance. Then he rose, nodded. "Barclay better go along. He applied the lashings, and may figure how to get in without frightening Blair too much."
+Van looked up sharply, the frown of worry faded for an instant in surprised remembrance.  Then he rose, nodded.  "Barclay better go along.  He applied the lashings, and may figure how to get in without frightening Blair too much."
 
-Three quarters of an hour, through -37 cold, while the Aurora curtain bellied overhead. The twilight was nearly 12 hours long, flaming in the north on snow like white, crystalline sand under their skis. A 5-mile wind piled it in drift-lines pointing off to the northwest. Three quarters of an hour to reach the snow-buried shack. No smoke came from the little shack, and the men hastened.
+Three quarters of an hour, through -37 cold, while the Aurora curtain bellied overhead.  The twilight was nearly 12 hours long, flaming in the north on snow like white, crystalline sand under their skis.  A 5-mile wind piled it in drift-lines pointing off to the northwest.  Three quarters of an hour to reach the snow-buried shack.  No smoke came from the little shack, and the men hastened.
 
-"Blair!" Barclay roared into the wind when he was still a hundred yards away. "Blair!"
+"Blair!" Barclay roared into the wind when he was still a hundred yards away.  "Blair!"
 
-"Shut up," said McReady softly. "And hurry. He may be trying a long hike. If we have to go after him — no planes, the tractors disabled — "
+"Shut up," said McReady softly.  "And hurry.  He may be trying a long hike.  If we have to go after him - no planes, the tractors disabled - "
 
 "Would a monster have the stamina a man has?"
 
 "A broken leg wouldn't stop it for more than a minute," McReady pointed out.
 
-Barclay gasped suddenly and pointed aloft. Dim in the twilit sky, a winged thing circled in curves of indescribable grace and ease. Great white wings tipped gently, and the bird swept over them in silent curiosity. "Albatross —" Barclay said softly. "First of the season, and wandering way inland for some reason. If a monster's loose — "
+Barclay gasped suddenly and pointed aloft.  Dim in the twilit sky, a winged thing circled in curves of indescribable grace and ease.  Great white wings tipped gently, and the bird swept over them in silent curiosity.  "Albatross -" Barclay said softly.  "First of the season, and wandering way inland for some reason.  If a monster's loose - "
 
-Norris bent down on the ice, and tore hurriedly at his heavy, wind-proof clothing. He straightened, his coat flapping open, a grim blue-metaled weapon in his hand. It roared a challenge to the white silence of Antarctica.
+Norris bent down on the ice, and tore hurriedly at his heavy, wind-proof clothing.  He straightened, his coat flapping open, a grim blue-metaled weapon in his hand.  It roared a challenge to the white silence of Antarctica.
 
-The thing in the air screamed hoarsely. Its great wings worked frantically as a dozen feathers floated down from its tail. Norris fired again. The bird was moving swiftly now, but in an almost straight line of retreat. It screamed again, more feathers dropped and with beating wings it soared behind a ridge of pressure ice, to vanish.
+The thing in the air screamed hoarsely.  Its great wings worked frantically as a dozen feathers floated down from its tail.  Norris fired again.  The bird was moving swiftly now, but in an almost straight line of retreat.  It screamed again, more feathers dropped and with beating wings it soared behind a ridge of pressure ice, to vanish.
 
-Norris hurried after the others. "It won't come back," he panted.
+Norris hurried after the others.  "It won't come back," he panted.
 
-Barclay cautioned him to silence, pointing. A curiously, fiercely blue light beat out from the cracks of the shack's door. A very low, soft humming sounded inside, a low, soft humming and a clink and clank of tools, the very sounds somehow bearing a message of frantic haste.
+Barclay cautioned him to silence, pointing.  A curiously, fiercely blue light beat out from the cracks of the shack's door.  A very low, soft humming sounded inside, a low, soft humming and a clink and clank of tools, the very sounds somehow bearing a message of frantic haste.
 
-McReady's face paled. "Lord help us if that thing has — " He grabbed Barclay's shoulder, and made snipping motions with his fingers, pointing toward the lacing of control-cables that held the door.
+McReady's face paled.  "Lord help us if that thing has - "  He grabbed Barclay's shoulder, and made snipping motions with his fingers, pointing toward the lacing of control-cables that held the door.
 
-Barclay drew the wire-cutters from his pocket, and kneeled soundlessly at the door. The snap and twang of cut wires made an unbearable racket in the utter quiet of the Antarctic hush. There was only that strange, sweetly soft hum from within the shack, and the queerly, hectically clipped clicking and rattling of tools to drown their noises.
+Barclay drew the wire-cutters from his pocket, and kneeled soundlessly at the door.  The snap and twang of cut wires made an unbearable racket in the utter quiet of the Antarctic hush.  There was only that strange, sweetly soft hum from within the shack, and the queerly, hectically clipped clicking and rattling of tools to drown their noises.
 
-McReady peered through a crack in the door. His breath sucked in huskily and his great fingers clamped cruelly on Barclay's shoulder. The meteorologist backed down. "It isn't," he explained very softly, "Blair. It's kneeling on something on the bunk-something that keeps lifting. Whatever it's working on is a thing like a knap-sack — and it lifts."
+McReady peered through a crack in the door.  His breath sucked in huskily and his great fingers clamped cruelly on Barclay's shoulder.  The meteorologist backed down.  "It isn't," he explained very softly, "Blair.  It's kneeling on something on the bunk-something that keeps lifting.  Whatever it's working on is a thing like a knap-sack - and it lifts."
 
-"All at once," Barclay said grimly. "No Norris, hang back, and get that iron of yours out. It may have — weapons."
+"All at once," Barclay said grimly.  "No Norris, hang back, and get that iron of yours out.  It may have - weapons."
 
-Together, Barclay's powerful body and McReady's giant strength struck the door. Inside, the bunk jammed against the door screeched madly and crackled into kindling. The door flung down from broken hinges, the patched lumber of the doorpost dropping inward.
+Together, Barclay's powerful body and McReady's giant strength struck the door.  Inside, the bunk jammed against the door screeched madly and crackled into kindling.  The door flung down from broken hinges, the patched lumber of the doorpost dropping inward.
 
-Like a blue-rubber ball, a Thing bounced up. One of its four tentaclelike arms looped out like a striking snake. In a seven-tentacled hand a six-inch pencil of winking, shining metal glinted and swung upward to face them. Its line-thin lips twitched back from snake-fangs in a grin of hate, red eyes blazing.
+Like a blue-rubber ball, a Thing bounced up.  One of its four tentaclelike arms looped out like a striking snake.  In a seven-tentacled hand a six-inch pencil of winking, shining metal glinted and swung upward to face them.  Its line-thin lips twitched back from snake-fangs in a grin of hate, red eyes blazing.
 
-Norris' revolver thundered in the confined space. The hate-washed face twitched in agony, the looping tentacle snatched back. The silvery thing in its hand a smashed ruin of metal, the seven-tentacled hand became a mass of mangled flesh oozing greenish-yellow ichor. The revolver thundered three times more. Dark holes drilled each of the three eyes before Norris hurled the empty weapon against its face.
+Norris' revolver thundered in the confined space.  The hate-washed face twitched in agony, the looping tentacle snatched back.  The silvery thing in its hand a smashed ruin of metal, the seven-tentacled hand became a mass of mangled flesh oozing greenish-yellow ichor.  The revolver thundered three times more.  Dark holes drilled each of the three eyes before Norris hurled the empty weapon against its face.
 
-The thing screamed a feral hate, a lashing tentacle wiping at blinded eyes. For a moment it crawled on the floor, savage tentacles lashing out, the body twitching. Then it staggered up again, blinded eyes working, boiling hideously, the crushed flesh sloughing away in sodden gobbets.
+The thing screamed a feral hate, a lashing tentacle wiping at blinded eyes.  For a moment it crawled on the floor, savage tentacles lashing out, the body twitching.  Then it staggered up again, blinded eyes working, boiling hideously, the crushed flesh sloughing away in sodden gobbets.
 
-Barclay lurched to his feet and dove forward with an ice-ax. The flat of the weighty thing crushed against the side of the head. Again the unkillable monster went down. The tentacles lashed out, and suddenly Barclay fell to his feet in the grip of a living, livid rope. The thing dissolved as he held it, a white-hot band that ate into the flesh of his hands like living fire. Frantically he tore the stuff from him, held his hands where they could not be reached. The blind Thing felt and ripped at the tough; heavy, windproof cloth, seeking flesh — flesh it could convert.
+Barclay lurched to his feet and dove forward with an ice-ax.  The flat of the weighty thing crushed against the side of the head.  Again the unkillable monster went down.  The tentacles lashed out, and suddenly Barclay fell to his feet in the grip of a living, livid rope.  The thing dissolved as he held it, a white-hot band that ate into the flesh of his hands like living fire.  Frantically he tore the stuff from him, held his hands where they could not be reached.  The blind Thing felt and ripped at the tough, heavy, windproof cloth, seeking flesh - flesh it could convert.
 
-The huge blow-torch McReady had brought coughed solemnly. Abruptly it rumbled disapproval throatily. Then it laughed gurglingly, and thrust out a blue-white, three-foot tongue. The Thing on the floor shrieked, flailed out blindly with tentacles that writhed and withered in the bubbling wrath of the blow-torch. It crawled and turned on the floor, it shrieked and hobbled madly, but always McReady held the blow-torch on the face, the dead eyes burning and bubbling uselessly. Frantically the Thing crawled and howled.
+The huge blow-torch McReady had brought coughed solemnly.  Abruptly it rumbled disapproval throatily.  Then it laughed gurglingly, and thrust out a blue-white, three-foot tongue.  The Thing on the floor shrieked, flailed out blindly with tentacles that writhed and withered in the bubbling wrath of the blow-torch.  It crawled and turned on the floor, it shrieked and hobbled madly, but always McReady held the blow-torch on the face, the dead eyes burning and bubbling uselessly.  Frantically the Thing crawled and howled.
 
-A tentacle sprouted a savage talon — and crisped in the flame. Steadily McReady moved with a planned, grim campaign. Helpless, maddened, the Thing retreated from the grunting torch, the caressing, licking tongue. For a moment it rebelled, squalling in inhuman hatred at the touch of icy snow. Then it fell back before the charring breath of the torch, the stench of its flesh bathing it. Hopelessly it retreated — on and on across the Antarctic snow, The bitter wind swept over it twisting the torch-tongue; vainly it flopped, a trail of oily, stinking smoke bubbling away from it
+A tentacle sprouted a savage talon - and crisped in the flame.  Steadily McReady moved with a planned, grim campaign.  Helpless, maddened, the Thing retreated from the grunting torch, the caressing, licking tongue.  For a moment it rebelled, squalling in inhuman hatred at the touch of icy snow.  Then it fell back before the charring breath of the torch, the stench of its flesh bathing it.  Hopelessly it retreated - on and on across the Antarctic snow.  The bitter wind swept over it twisting the torch-tongue; vainly it flopped, a trail of oily, stinking smoke bubbling away from it.
 
-McReady walked back toward the shack silently. Barclay met him at the door. "No more?" the giant meteorologist asked grimly.
+McReady walked back toward the shack silently.  Barclay met him at the door.  "No more?" the giant meteorologist asked grimly.
 
-Barclay shook his head. "No more. It didn't split?"
+Barclay shook his head.  "No more.  It didn't split?"
 
-"It had other things to think about," McReady assured him. "When I left it, it was a glowing coal. What was it doing?"
+"It had other things to think about," McReady assured him.  "When I left it, it was a glowing coal.  What was it doing?"
 
-Norris laughed shortly. "Wise boys, we are. Smash magnetos, so planes won't work. Rip the boiler tubing out of the tractors. And leave that Thing alone for a week in this shack. Alone and undisturbed."
+Norris laughed shortly.  "Wise boys, we are.  Smash magnetos, so planes won't work.  Rip the boiler tubing out of the tractors.  And leave that Thing alone for a week in this shack.  Alone and undisturbed."
 
-McReady looked in at the shack more carefully. The air, despite the ripped door, was hot and humid. On a table at the far end of the room rested a thing of coiled wires and small magnets, glass tubing and radio tubes. At the center a block of rough stone rested. From the center of the block came the light that flooded the place, the fiercely blue light bluer than the glare of an electric arc, and from it came the sweetly soft hum. Off to one side was another mechanism of crystal glass, blown with an incredible neatness and delicacy, metal plates and a queer, shimmery sphere of insubstantiality.
+McReady looked in at the shack more carefully.  The air, despite the ripped door, was hot and humid.  On a table at the far end of the room rested a thing of coiled wires and small magnets, glass tubing and radio tubes.  At the center a block of rough stone rested.  From the center of the block came the light that flooded the place, the fiercely blue light bluer than the glare of an electric arc, and from it came the sweetly soft hum.  Off to one side was another mechanism of crystal glass, blown with an incredible neatness and delicacy, metal plates and a queer, shimmery sphere of insubstantiality.
 
 "What is that?" McReady moved nearer.
 
-Norris grunted. "Leave it for investigation. But I can guess pretty well. That's atomic power. That stuff to the left — that's a neat little thing for doing what men have been trying to do with 100-ton cyclotrons and so forth. It separates neutrons from heavy water, which he was getting from the surrounding ice."
+Norris grunted.  "Leave it for investigation.  But I can guess pretty well.  That's atomic power.  That stuff to the left - that's a neat little thing for doing what men have been trying to do with 100-ton cyclotrons and so forth.  It separates neutrons from heavy water, which he was getting from the surrounding ice."
 
-"Where did he get all — oh. Of course, a monster couldn't be locked in — or out. He's been through the apparatus caches." McReady stared at the apparatus. "Lord, what minds that race must have — "
+"Where did he get all - oh.  Of course, a monster couldn't be locked in - or out.  He's been through the apparatus caches."  McReady stared at the apparatus.  "Lord, what minds that race must have - "
 
-"The shimmery sphere — I think it's a sphere of pure force. Neutrons can pass through any matter, and he wanted a supply reservoir of neutrons. Just project neutrons against silica — calcium — beryllium — almost anything, and the atomic energy is released. That thing is the atomic generator."
+"The shimmery sphere - I think it's a sphere of pure force.  Neutrons can pass through any matter, and he wanted a supply reservoir of neutrons.  Just project neutrons against silica - calcium - beryllium - almost anything, and the atomic energy is released.  That thing is the atomic generator."
 
-McReady plucked a thermometer from his coat. "It's 120 in here, despite the open door. Our clothes have kept the heat out to an extent, but I'm sweating now."
+McReady plucked a thermometer from his coat.  "It's 120 in here, despite the open door.  Our clothes have kept the heat out to an extent, but I'm sweating now."
 
-Norris nodded. "The light's cold. I found that. But it gives off heat to warm the place through that coil. He had all the power in the world. He could keep it warm and pleasant, as his race thought of warmth and pleasantness. Did you notice the light, the color of it?"
+Norris nodded.  "The light's cold.  I found that.  But it gives off heat to warm the place through that coil.  He had all the power in the world.  He could keep it warm and pleasant, as his race thought of warmth and pleasantness.  Did you notice the light, the color of it?"
 
-McReady nodded. "Beyond the stars is the answer. From beyond the stars. From a hotter planet that circled a brighter, bluer sun they came."
+McReady nodded.  "Beyond the stars is the answer.  From beyond the stars.  From a hotter planet that circled a brighter, bluer sun they came."
 
-McReady glanced out the door toward the blasted, smoke-stained trail that flopped and wandered blindly off across the drift. "There won't be any more coming, I guess. Sheer accident it landed here, and that was twenty million years ago. What did it do all that for?" he nodded toward the apparatus.
+McReady glanced out the door toward the blasted, smoke-stained trail that flopped and wandered blindly off across the drift.  "There won't be any more coming, I guess.  Sheer accident it landed here, and that was twenty million years ago.  What did it do all that for?" he nodded toward the apparatus.
 
-Barclay laughed softly. "Did you notice what it was working on when we came? Look." He pointed toward the ceiling of the shack.
+Barclay laughed softly.  "Did you notice what it was working on when we came?  Look."  He pointed toward the ceiling of the shack.
 
-Like a knapsnack made of flattened coffee-tins, with dangling cloth straps and leather belts, the mechanism clung to the ceiling. A tiny, glaring heart of supernal flame burned in it, yet burned through the ceiling's wood without scorching it. Barclay walked over to it, grasped two of the dangling straps in his hands, and pulled it down with an effort. He strapped it about his body. A slight jump carried him in a weirdly slow arc across the room.
+Like a knapsnack made of flattened coffee-tins, with dangling cloth straps and leather belts, the mechanism clung to the ceiling.  A tiny, glaring heart of supernal flame burned in it, yet burned through the ceiling's wood without scorching it.  Barclay walked over to it, grasped two of the dangling straps in his hands, and pulled it down with an effort.  He strapped it about his body.  A slight jump carried him in a weirdly slow arc across the room.
 
 "Anti-gravity," said McReady softly.
 
-"Anti-gravity," Norris nodded. "Yes, we had 'em stopped, with no planes, and no birds. The birds hadn't come — but they had coffee-tins and radio parts, and glass and the machine shop at night. And a week — a whole week — all to itself. America in a single jump — with anti-gravity powered by the atomic energy of matter.
+"Anti-gravity," Norris nodded.  "Yes, we had 'em stopped, with no planes, and no birds.  The birds hadn't come - but they had coffee-tins and radio parts, and glass and the machine shop at night.  And a week - a whole week - all to itself.  America in a single jump - with anti-gravity powered by the atomic energy of matter.
 
-"We had 'em stopped, another half hour — it was just tightening these straps on the device so it could wear it — and we'd have stayed in Antarctica, and shot down any moving thing that came from, the rest of the world."
+"We had 'em stopped, another half hour - it was just tightening these straps on the device so it could wear it - and we'd have stayed in Antarctica, and shot down any moving thing that came from, the rest of the world."
 
-"The albatross — " McReady said softly. "Do you suppose — "
+"The albatross - " McReady said softly.  "Do you suppose - "
 
-"With this thing almost finished? With that death weapon it held in its hand?
+"With this thing almost finished?  With that death weapon it held in its hand?
 
-"No, by the grace of God, who evidently does hear very well, even down here, and the margin of half an hour, we keep our world, and the planets of the system too. Anti-gravity, you know, and atomic power. Because _They_ came from another sun, a star beyond the stars. _They_ came from a world with a bluer sun." 
+"No, by the grace of God, who evidently does hear very well, even down here, and the margin of half an hour, we keep our world, and the planets of the system too.  Anti-gravity, you know, and atomic power.  Because _They_ came from another sun, a star beyond the stars.  _They_ came from a world with a bluer sun."
 
 THE END
 

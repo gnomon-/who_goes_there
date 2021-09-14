@@ -98,79 +98,80 @@ It was easy for man - or _thing_ - to get lost in ten paces.
 "Van Wall flew in from Big Magnet at sun-up, as you know.  We came home as soon as possible.  That is the history of - that."  McReady's great bronze beard gestured toward the thing on the table.
 
 ## Chapter 2
-Blair stirred uneasily, his little bony fingers wriggling under the harsh light. Little brown freckles on his knuckles slid back and forth as the tendons under the skin twitched. He pulled aside a bit of the tarpaulin and looked impatiently at the dark icebound thing inside.
 
-McReady's big body straightened somewhat. He'd ridden the rocking, jarring steam tractor forty miles that day, pushing on to Big Magnet here. Even his calm will had been pressed by the anxiety to mix again with humans. It was lone and quiet out there in Secondary Camp, where a wolf-wind howled down from the Pole. Wolf-wind howling in his sleep — winds droning and the evil, unspeakable face of that monster leering up as he'd first seen it through clear, blue ice, with a bronze ice-ax buried in its skull.
+Blair stirred uneasily, his little bony fingers wriggling under the harsh light.  Little brown freckles on his knuckles slid back and forth as the tendons under the skin twitched.  He pulled aside a bit of the tarpaulin and looked impatiently at the dark icebound thing inside.
 
-The giant meteorologist spoke again. "The problem is them. Blair wants to examine the thing. Thaw it out and make micro slides of its tissues and so forth. Norris doesn't believe that is safe, and Blair does. Dr. Copper agrees pretty much with Blair. Norris is a physicist, of course, not a biologist. But he makes a point I think we should all hear. Blair has described the microscopic life-forms biologists find living, even in this cold an inhospitable place. They freeze every winter, and thaw every summer — for three months — and live.
+McReady's big body straightened somewhat.  He'd ridden the rocking, jarring steam tractor forty miles that day, pushing on to Big Magnet here.  Even his calm will had been pressed by the anxiety to mix again with humans.  It was lone and quiet out there in Secondary Camp, where a wolf-wind howled down from the Pole.  Wolf-wind howling in his sleep - winds droning and the evil, unspeakable face of that monster leering up as he'd first seen it through clear, blue ice, with a bronze ice-ax buried in its skull.
 
-"The point Norris makes is — they thaw, and live again. There must have been microscopic life associated with this creature. There is with every living thing we know. And Norris is afraid that we may release a plague — some germ disease unknown to Earth — if we thaw those microscopic things that have been frozen there for twenty million years.
+The giant meteorologist spoke again.  "The problem is them.  Blair wants to examine the thing.  Thaw it out and make micro slides of its tissues and so forth.  Norris doesn't believe that is safe, and Blair does.  Dr. Copper agrees pretty much with Blair.  Norris is a physicist, of course, not a biologist.  But he makes a point I think we should all hear.  Blair has described the microscopic life-forms biologists find living, even in this cold an inhospitable place.  They freeze every winter, and thaw every summer - for three months - and live.
 
-"Blair admits that such micro-life might retain the power of living. Such unorganized things as individual cells can retain life for unknown periods, when solidly frozen. The beast itself is as dead as those frozen mammoths they find in Siberia. Organized, highly developed life-forms can't stand that treatment.
+"The point Norris makes is - they thaw, and live again.  There must have been microscopic life associated with this creature.  There is with every living thing we know.  And Norris is afraid that we may release a plague - some germ disease unknown to Earth - if we thaw those microscopic things that have been frozen there for twenty million years.
 
-"But micro-life could. Norris suggests that we may release some disease-form that man, never having met it before, will be utterly defenseless against.
+"Blair admits that such micro-life might retain the power of living.  Such unorganized things as individual cells can retain life for unknown periods, when solidly frozen.  The beast itself is as dead as those frozen mammoths they find in Siberia.  Organized, highly developed life-forms can't stand that treatment.
 
-"Blair's answer is that there may be such still living germs, but that Norris has the case reversed. They are utterly non-immune to man. Our life chemistry probably — "
+"But micro-life could.  Norris suggests that we may release some disease-form that man, never having met it before, will be utterly defenseless against.
 
-"Probably!" The little biologist's head lifted in a quick, birdlike motion. The halo of gray hair about his bald head ruffled as though angry. "Heh. One look — "
+"Blair's answer is that there may be such still living germs, but that Norris has the case reversed.  They are utterly non-immune to man.  Our life chemistry probably - "
 
-"I know," McReady acknowledged. "The thing is not Earthly. It does not seem likely that it can have a life-chemistry sufficiently like ours to make cross-infection remotely possible. I would say that there is no danger."
+"Probably!"  The little biologist's head lifted in a quick, birdlike motion.  The halo of gray hair about his bald head ruffled as though angry.  "Heh.  One look - "
 
-McReady looked toward Dr. Copper. The physician shook his head slowly. "None whatever," he asserted confidently. "Man cannot infect or be infected by germs that live in such comparatively close relatives as the snakes. And they are, I assure you," his clean-shaven face grimaced uneasily, "_much_ nearer to us than — _that_."
+"I know," McReady acknowledged.  "The thing is not Earthly.  It does not seem likely that it can have a life-chemistry sufficiently like ours to make cross-infection remotely possible.  I would say that there is no danger."
 
-Vance Norris moved angrily. He was comparatively short in this gathering of big men, some five-feet-eight, and his stocky, powerful build tended to make him seem shorter. His black hair was crisp and hard, like short, steel wires, and his eyes were the gray of fractured steel. If McReady was a man of bronze, Norris was all steel. His movements, his thoughts, his whole bearing had the quick, hard impulse of steel spring. His nerves were steel — hard, quick-acting — swift corroding.
+McReady looked toward Dr. Copper.  The physician shook his head slowly.  "None whatever," he asserted confidently.  "Man cannot infect or be infected by germs that live in such comparatively close relatives as the snakes.  And they are, I assure you," his clean-shaven face grimaced uneasily, "_much_ nearer to us than - _that_."
 
-He was decided on his point now, and he lashed out in its defense with a characteristic quick, clipped flow of words. "Different chemistry be damned. That thing may be dead — or, by God, it may not — but I don't like it. Damn it, Blair, let them see the foul thing and decide for themselves whether they want that thing thawed out in this camp.
+Vance Norris moved angrily.  He was comparatively short in this gathering of big men, some five-feet-eight, and his stocky, powerful build tended to make him seem shorter.  His black hair was crisp and hard, like short, steel wires, and his eyes were the gray of fractured steel.  If McReady was a man of bronze, Norris was all steel.  His movements, his thoughts, his whole bearing had the quick, hard impulse of steel spring.  His nerves were steel - hard, quick-acting - swift corroding.
 
-"Thawed out, by the way. That's got to be thawed out in one of the shacks tonight, if it is thawed out. Somebody — who's watchman tonight? Magnetic — oh, Connant. Cosmic rays tonight. Well, you get to sit up with that twenty-million-year-old mummy of his.
+He was decided on his point now, and he lashed out in its defense with a characteristic quick, clipped flow of words.  "Different chemistry be damned.  That thing may be dead - or, by God, it may not - but I don't like it.  Damn it, Blair, let them see the foul thing and decide for themselves whether they want that thing thawed out in this camp.
 
-"Unwrap it, Blair. How the hell can they tell what they are buying if they can't see it? It may have a different chemistry. I don't know what else it has, but I know it has something I don't want. If you can judge by the look on its face — it isn't human so maybe you can't — it was annoyed when it froze. Annoyed, in fact, is just about as close an approximation of the way it felt as crazy, mad, insane hatred. Neither one touches the subject.
+"Thawed out, by the way.  That's got to be thawed out in one of the shacks tonight, if it is thawed out.  Somebody - who's watchman tonight?  Magnetic - oh, Connant.  Cosmic rays tonight.  Well, you get to sit up with that twenty-million-year-old mummy of his.
 
-"How the hell can these birds tell what they are voting on? They haven't seen those three red eyes, and the blue hair like crawling worms. Crawling — damn, it's crawling there in the ice right now!
+"Unwrap it, Blair.  How the hell can they tell what they are buying if they can't see it?  It may have a different chemistry.  I don't know what else it has, but I know it has something I don't want.  If you can judge by the look on its face - it isn't human so maybe you can't - it was annoyed when it froze.  Annoyed, in fact, is just about as close an approximation of the way it felt as crazy, mad, insane hatred.  Neither one touches the subject.
 
-"Nothing Earth ever spawned had the unutterable sublimation of devastating wrath that thing let loose in its face when it looked around this frozen desolation twenty million years ago. Mad? It was mad clear through — searing, blistering mad!
+"How the hell can these birds tell what they are voting on?  They haven't seen those three red eyes, and the blue hair like crawling worms.  Crawling - damn, it's crawling there in the ice right now!
 
-"Hell, I've had bad dreams ever since I looked at those three red eyes. Nightmares. Dreaming the thing thawed out and came to life — that it wasn't dead, or even wholly unconscious all those twenty million years, but just slowed, waiting — waiting. You'll dream, too, while that damned thing that Earth wouldn't own is dripping, dripping in the Cosmos House tonight.
+"Nothing Earth ever spawned had the unutterable sublimation of devastating wrath that thing let loose in its face when it looked around this frozen desolation twenty million years ago.  Mad?  It was mad clear through - searing, blistering mad!
 
-"And, Connant," Norris whipped toward the cosmic ray specialist, "won't you have fun sitting up all night in the quiet. Wind whining above — and that thing dripping — " He stopped for a moment, and looked around.
+"Hell, I've had bad dreams ever since I looked at those three red eyes.  Nightmares.  Dreaming the thing thawed out and came to life - that it wasn't dead, or even wholly unconscious all those twenty million years, but just slowed, waiting - waiting.  You'll dream, too, while that damned thing that Earth wouldn't own is dripping, dripping in the Cosmos House tonight.
 
-"I know. That's not science. But this is, it's psychology. You'll have nightmares for a year to come. Every night since I looked at that thing I've had 'em., That's why I hate it — sure I do — and don't want it around. Put it back where it came from and let it freeze for another twenty million years. I had some swell nightmares — that it wasn't made like we are — which is obvious — but of a different kind of flesh that it can really control. That it can change its shape, and look like a man — and wait to kill and eat —
+"And, Connant," Norris whipped toward the cosmic ray specialist, "won't you have fun sitting up all night in the quiet.  Wind whining above - and that thing dripping - " He stopped for a moment, and looked around.
 
-"That's not a logical argument. I know it isn't. The thing isn't Earth-logic anyway.
+"I know.  That's not science.  But this is, it's psychology.  You'll have nightmares for a year to come.  Every night since I looked at that thing I've had 'em.  That's why I hate it - sure I do - and don't want it around.  Put it back where it came from and let it freeze for another twenty million years.  I had some swell nightmares - that it wasn't made like we are - which is obvious - but of a different kind of flesh that it can really control.  That it can change its shape, and look like a man - and wait to kill and eat -
 
-"Maybe it has an alien body-chemistry, and maybe its bugs do have a different body-chemistry. A germ might not stand that, but, Blair and Copper, how about a virus? That's just an enzyme molecule, you've said. That wouldn't need anything but a protein molecule of any body to work on.
+"That's not a logical argument.  I know it isn't.  The thing isn't Earth-logic anyway.
 
-"And how are you so sure that, of the million varieties of microscopic life it may have, none of them are dangerous? How about diseases like hydrophobia — rabies — that attacks any warm-blooded creature, whatever its body-chemistry may be? And parrot fever? Have you a body like a parrot, Blair? And plain rot — gangrene — necrosis, do you want? That isn't choosy about body-chemistry!"
+"Maybe it has an alien body-chemistry, and maybe its bugs do have a different body-chemistry.  A germ might not stand that, but, Blair and Copper, how about a virus?  That's just an enzyme molecule, you've said.  That wouldn't need anything but a protein molecule of any body to work on.
 
-Blair looked up from his puttering long enough to meet Norris' angry gray eyes for an instant. "So far the only thing you have said this thing gave off that was catching was dreams. I'll go so far as to admit that." An impish, slightly malignant grin crossed the little man's seamed face. "I had some, too. So. It's dream-infectious. No doubt an exceedingly dangerous malady.
+"And how are you so sure that, of the million varieties of microscopic life it may have, none of them are dangerous?  How about diseases like hydrophobia - rabies - that attacks any warm-blooded creature, whatever its body-chemistry may be?  And parrot fever?  Have you a body like a parrot, Blair?  And plain rot - gangrene - necrosis, do you want?  That isn't choosy about body-chemistry!"
 
-"So far as your other things go, you have a badly mistaken idea about viruses. In the first place, nobody has shown that the enzyme-molecule theory, and that alone, explains them. And in the second place, when you catch tobacco mosaic or wheat rust, let me know. A wheat plant is a lot nearer your body-chemistry than this other-world creature is.
+Blair looked up from his puttering long enough to meet Norris' angry gray eyes for an instant.  "So far the only thing you have said this thing gave off that was catching was dreams.  I'll go so far as to admit that."  An impish, slightly malignant grin crossed the little man's seamed face.  "I had some, too.  So.  It's dream-infectious.  No doubt an exceedingly dangerous malady.
 
-"And your rabies is limited, strictly limited. You can't get it from, nor give it to, a wheat plant or a fish — which is a collateral descendant of a common ancestor of yours. Which this, Norris, is not." Blair nodded pleasantly toward the tarpaulined bulk on the table.
+"So far as your other things go, you have a badly mistaken idea about viruses.  In the first place, nobody has shown that the enzyme-molecule theory, and that alone, explains them.  And in the second place, when you catch tobacco mosaic or wheat rust, let me know.  A wheat plant is a lot nearer your body-chemistry than this other-world creature is.
 
-"Well, thaw the damned thing in a tub of formalin if you must thaw it. I've suggested that — "
+"And your rabies is limited, strictly limited.  You can't get it from, nor give it to, a wheat plant or a fish - which is a collateral descendant of a common ancestor of yours.  Which this, Norris, is not."  Blair nodded pleasantly toward the tarpaulined bulk on the table.
 
-"And I've said there would be no sense in it. You can't compromise. Why did you and Commander Garry come down here to study magnetism? Why weren't you content to stay at home? There's magnetic force enough in New York. I could no more study the life this thing once had from a formalin-pickled sample than you could get the information you wanted back in New York. And — if this one is so treated, _never in all time to come can there be a duplicate_! The race it came from must have passed away in the twenty millions years it lay frozen, so that even if it came from Mars then, we'd never find its like. And — the ship is gone.
+"Well, thaw the damned thing in a tub of formalin if you must thaw it.  I've suggested that - "
 
-"There's only one way to do this — and that is the best possible way. It must be thawed slowly, carefully, and not in formalin."
+"And I've said there would be no sense in it.  You can't compromise.  Why did you and Commander Garry come down here to study magnetism?  Why weren't you content to stay at home?  There's magnetic force enough in New York.  I could no more study the life this thing once had from a formalin-pickled sample than you could get the information you wanted back in New York.  And - if this one is so treated, _never in all time to come can there be a duplicate_!  The race it came from must have passed away in the twenty millions years it lay frozen, so that even if it came from Mars then, we'd never find its like.  And - the ship is gone.
 
-Commander Garry stood forward again, and Norris stepped back muttering angrily. "I think Blair is right, gentlemen. What do you say?"
+"There's only one way to do this - and that is the best possible way.  It must be thawed slowly, carefully, and not in formalin."
 
-Connant grunted. "It sounds right to us, I think — only perhaps he ought to stand watch over it while it's thawing." He grinned ruefully, brushing a stray lock of ripe-cherry hair back from his forehead. "Swell idea, in fact — if he sits up with his jolly little corpse."
+Commander Garry stood forward again, and Norris stepped back muttering angrily.  "I think Blair is right, gentlemen.  What do you say?"
 
-Garry smiled slightly. A general chuckle of agreement rippled over the group. "I should think any ghost it may have had would have starved to death if it hung around here that long, Connant," Garry suggested. "And you look capable of taking care of it. 'Ironman' Connant ought to be able to take out any opposing players, still."
+Connant grunted.  "It sounds right to us, I think - only perhaps he ought to stand watch over it while it's thawing."  He grinned ruefully, brushing a stray lock of ripe-cherry hair back from his forehead.  "Swell idea, in fact - if he sits up with his jolly little corpse."
 
-Connant shook himself uneasily. "I'm not worrying about ghosts. Let's see that thing. I — "
+Garry smiled slightly.  A general chuckle of agreement rippled over the group.  "I should think any ghost it may have had would have starved to death if it hung around here that long, Connant," Garry suggested.  "And you look capable of taking care of it.  'Ironman' Connant ought to be able to take out any opposing players, still."
 
-Eagerly Blair was stripping back the ropes. A single throw of the tarpaulin revealed the thing. The ice had melted somewhat in the heat of the room and it was clear and blue as thick, good glass. It shone wet and sleek under the harsh light of the unshielded globe above.
+Connant shook himself uneasily.  "I'm not worrying about ghosts.  Let's see that thing. I - "
 
-The room stiffened abruptly. It was face up there on the plain, greasy planks of the table. The broken half of the bronze ice-ax was still buried in the queer skull. Three mad, hate-filled eyes blazed up with a living fire, bright as fresh-spilled blood. from a face ringed with a writhing, loathsome nest of worms, blue, mobile worms that crawled where hair should grow
+Eagerly Blair was stripping back the ropes.  A single throw of the tarpaulin revealed the thing.  The ice had melted somewhat in the heat of the room and it was clear and blue as thick, good glass.  It shone wet and sleek under the harsh light of the unshielded globe above.
 
-Van Wall, six feet and 200 pounds of ice-nerved pilot, gave a queer, strangled gasp and butted, stumbled his way out to the corridor. Half the company broke for the doors. The others stumbled away from the table.
+The room stiffened abruptly.  It was face up there on the plain, greasy planks of the table.  The broken half of the bronze ice-ax was still buried in the queer skull.  Three mad, hate-filled eyes blazed up with a living fire, bright as fresh-spilled blood, from a face ringed with a writhing, loathsome nest of worms, blue, mobile worms that crawled where hair should grow.
 
-McReady stood at one end of the table watching them, his great body planted solid on his powerful legs. Norris from the opposite end glowered at the thing with smoldering heat. Outside the door, Garry was talking with half a dozen of the men at once.
+Van Wall, six feet and 200 pounds of ice-nerved pilot, gave a queer, strangled gasp and butted, stumbled his way out to the corridor.  Half the company broke for the doors.  The others stumbled away from the table.
 
-Blair had a tack hammer. The ice that cased the thing _schluffed_ crisply under its steel claw as it peeled from the thing it had cased for twenty thousand thousand years —
+McReady stood at one end of the table watching them, his great body planted solid on his powerful legs.  Norris from the opposite end glowered at the thing with smoldering heat.  Outside the door, Garry was talking with half a dozen of the men at once.
+
+Blair had a tack hammer.  The ice that cased the thing _schluffed_ crisply under its steel claw as it peeled from the thing it had cased for twenty thousand thousand years -
 
 ## Chapter 3
 "I know you don't like the thing, Connant, but it just has to be thawed out right. You say leave it as it is till we get back to civilization. All right, I'll admit your argument that we could do a better and more complete job there is sound. But — how are we going to get this across the Line? We have to take this through one temperate zone, the equatorial zone, and half way through the other temperate zone before we get it to New York. You don't want to sit with it one night, but you suggest, then, that I hang its corpse in the freezer with the beef?" Blair looked up from his cautious chipping, his bald, freckled skull nodding triumphantly.

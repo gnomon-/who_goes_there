@@ -600,93 +600,94 @@ Commander Garry walked toward him sharply.  Silence clapped down on the Ad Build
 "Garry - tissue from the monster - precipitates too.  It proves nothing.  Nothing but - but the dog was monster-immune too.  That one of the two contributing blood - one of us two, you and I, Garry — _one of us is a monster_."
 
 ## Chapter 9
-"Bar, call back those men before they tell Blair," McReady said quietly. Blair went to the door; faintly his shouts came back to the tensely silent men in the room. Then he was back.
 
-"They're coming," he said. "I didn't tell them why. Just that Dr. Copper said not to go."
+"Bar, call back those men before they tell Blair," McReady said quietly.  Blair went to the door; faintly his shouts came back to the tensely silent men in the room.  Then he was back.
 
-"McReady," Garry sighed, "you're in command now. May God help you. I cannot."
+"They're coming," he said.  "I didn't tell them why.  Just that Dr. Copper said not to go."
+
+"McReady," Garry sighed, "you're in command now.  May God help you.  I cannot."
 
 The bronzed giant nodded slowly, his deep eyes on Commander Garry.
 
-"I may be the one," Garry added. "I know I'm not, but I cannot prove it to you in any way. Dr. Copper's test has broken down. The fact that he showed it was useless, when it was to the advantage of the monster to have that uselessness not known, would seem to prove he was human."
+"I may be the one," Garry added.  "I know I'm not, but I cannot prove it to you in any way.  Dr. Copper's test has broken down.  The fact that he showed it was useless, when it was to the advantage of the monster to have that uselessness not known, would seem to prove he was human."
 
-Copper rocked back and forth slowly on the bunk. "I know I'm human. I can't prove it either. One of us two is a liar, for that test cannot lie, and it says one of us is. I gave proof that the test was wrong, which seems to prove I'm human, and now Garry has given that argument which proves me human — which he, as the monster, should not do. Round and round and round and round and — "
+Copper rocked back and forth slowly on the bunk.  "I know I'm human.  I can't prove it either.  One of us two is a liar, for that test cannot lie, and it says one of us is.  I gave proof that the test was wrong, which seems to prove I'm human, and now Garry has given that argument which proves me human - which he, as the monster, should not do.  Round and round and round and round and - "
 
-Dr. Copper's head, then his neck and shoulders began circling slowly in time to the words. Suddenly he was lying back on the bunk, roaring with laughter. "It doesn't have to prove one of us is a monster! It doesn't have to prove that at all! Ho-ho. If we're _all_ monsters it works the same! We're all monsters — all of us — Connant and Garry and I — and all of you."
+Dr. Copper's head, then his neck and shoulders began circling slowly in time to the words.  Suddenly he was lying back on the bunk, roaring with laughter.  "It doesn't have to prove one of us is a monster!  It doesn't have to prove that at all!  Ho-ho.  If we're _all_ monsters it works the same!  We're all monsters - all of us - Connant and Garry and I - and all of you."
 
-"McReady," Van Wall, the blond-bearded Chief Pilot, called softly. "You were on the way to an M.D. when you took up meteorology, weren't you? Can you make some kind of test?"
+"McReady," Van Wall, the blond-bearded Chief Pilot, called softly.  "You were on the way to an M.D. when you took up meteorology, weren't you?  Can you make some kind of test?"
 
-McReady went over to Copper slowly, took the hypodermic from his hand, and washed it carefully in 95 per cent alcohol. Garry sat on the bunk edge with wooden face, watching Copper and McReady expressionlessly. "What Copper said is possible," McReady sighed. "Van, will you help here? Thanks." The filled needle jabbed into Copper's thigh. The man's laughter did not stop, but slowly faded into sobs, then sound sleep as the morphia took hold.
+McReady went over to Copper slowly, took the hypodermic from his hand, and washed it carefully in 95 per cent alcohol.  Garry sat on the bunk edge with wooden face, watching Copper and McReady expressionlessly.  "What Copper said is possible," McReady sighed.  "Van, will you help here?  Thanks."  The filled needle jabbed into Copper's thigh.  The man's laughter did not stop, but slowly faded into sobs, then sound sleep as the morphia took hold.
 
-McReady turned again. The men who had started for Blair stood at the far end of the room, skis dripping snow, their faces as white as their skis. Connant had a lighted cigarette in each hand; one he was puffing absently, and staring at the floor. The heat of the one in his left hand attracted him and he stared at it, and the one in the other hand stupidly for a moment. He dropped one and crushed it under his heel slowly.
+McReady turned again.  The men who had started for Blair stood at the far end of the room, skis dripping snow, their faces as white as their skis.  Connant had a lighted cigarette in each hand; one he was puffing absently, and staring at the floor.  The heat of the one in his left hand attracted him and he stared at it, and the one in the other hand stupidly for a moment.  He dropped one and crushed it under his heel slowly.
 
-"Dr. Copper," McReady repeated, "could be right. I know I'm human — but of course can't prove it. I'll repeat the test for my own information. Any of you others who wish to may do the same."
+"Dr. Copper," McReady repeated, "could be right.  I know I'm human - but of course can't prove it.  I'll repeat the test for my own information.  Any of you others who wish to may do the same."
 
-Two minutes later, McReady held a test-tube with white precipitin settling slowly from straw-colored serum. "It reacts to human blood too, so they aren't both monsters."
+Two minutes later, McReady held a test-tube with white precipitin settling slowly from straw-colored serum.  "It reacts to human blood too, so they aren't both monsters."
 
-"I didn't think they were," Van Wall sighed. "That wouldn't suit the monster either; we could have destroyed them if we knew. Why hasn't the monster destroyed us, do you suppose? It seems to be loose."
+"I didn't think they were," Van Wall sighed.  "That wouldn't suit the monster either; we could have destroyed them if we knew.  Why hasn't the monster destroyed us, do you suppose?  It seems to be loose."
 
-McReady snorted. Then laughed softly. "Elementary, my dear Watson. The monster wants to have life-forms available. It cannot animate a dead body, apparently. It is just waiting — waiting until the best opportunities come. We who remain human, it is holding in reserve."
+McReady snorted.  Then laughed softly.  "Elementary, my dear Watson.  The monster wants to have life-forms available.  It cannot animate a dead body, apparently.  It is just waiting - waiting until the best opportunities come.  We who remain human, it is holding in reserve."
 
-Kinner shuddered violently. "Hey. Hey, Mac. Mac, would I know if I was a monster? Would I know if the monster had already got me? Oh Lord, I may be a monster already."
+Kinner shuddered violently.  "Hey.  Hey, Mac.  Mac, would I know if I was a monster?  Would I know if the monster had already got me?  Oh Lord, I may be a monster already."
 
 "You'd know," McReady answered.
 
 "But we wouldn't," Norris laughed shortly, half-hysterically.
 
-McReady looked at the vial of serum remaining. "There's one thing this damned stuff is good for, at that," he said thoughtfully. "Clark, will you and Van help me? The rest of the gang better stick together here. Keep an eye on each other," he said bitterly. "See that you don't get into mischief, shall we say?"
+McReady looked at the vial of serum remaining.  "There's one thing this damned stuff is good for, at that," he said thoughtfully.  "Clark, will you and Van help me?  The rest of the gang better stick together here.  Keep an eye on each other," he said bitterly.  "See that you don't get into mischief, shall we say?"
 
-McReady started down the tunnel toward Dog Town, with Clark and Van Wall behind him. "You need more serum?" Clark asked.
+McReady started down the tunnel toward Dog Town, with Clark and Van Wall behind him.  "You need more serum?" Clark asked.
 
-McReady shook his head. "Tests. There's four cows and a bull, and nearly seventy dogs down there. This stuff reacts only to human blood and — monsters."
+McReady shook his head.  "Tests.  There's four cows and a bull, and nearly seventy dogs down there.  This stuff reacts only to human blood and - monsters."
 
-McReady came back to the Ad Building and went silently to the wash stand. Clark and Van Wall joined him a moment later. Clark's lips had developed a tic, jerking into sudden, unexpected sneers.
+McReady came back to the Ad Building and went silently to the wash stand.  Clark and Van Wall joined him a moment later.  Clark's lips had developed a tic, jerking into sudden, unexpected sneers.
 
-"What did you do?" Connant exploded suddenly. "More immunizing?"
+"What did you do?" Connant exploded suddenly.  "More immunizing?"
 
-Clark snickered, and stopped with a hiccough. "Immunizing. Haw! Immune all right."
+Clark snickered, and stopped with a hiccough.  "Immunizing.  Haw!  Immune all right."
 
-"That monster," said Van Wall steadily, "is quite logical. Our immune dog was quite all right, and we drew a little more serum for the tests. But we won't make any more."
+"That monster," said Van Wall steadily, "is quite logical.  Our immune dog was quite all right, and we drew a little more serum for the tests.  But we won't make any more."
 
-"Can't — can't you use one man's blood or another dog — " Norris began.
+"Can't - can't you use one man's blood or another dog - " Norris began.
 
 "There aren't," said McReady softly, "any more dogs, Nor cattle, I might add."
 
 "No more dogs?" Benning sat down slowly.
 
-"They're very nasty when they start changing," Van Wall said precisely, "but slow. That electrocution iron you made up, Barclay, is very fast. There is only one dog left — our immune. The monster left that for us, so we could play with our little test. The rest — " He shrugged and dried his hands.
+"They're very nasty when they start changing," Van Wall said precisely, "but slow.  That electrocution iron you made up, Barclay, is very fast.  There is only one dog left - our immune.  The monster left that for us, so we could play with our little test.  The rest - "  He shrugged and dried his hands.
 
-"The cattle — ," gulped Kinner.
+"The cattle - ," gulped Kinner.
 
-"Also. Reacted very nicely. They look funny as hell when they start melting. The beast hasn't any quick escape, when it's tied in dog chains, or halters, and it had to be to imitate."
+"Also.  Reacted very nicely.  They look funny as hell when they start melting.  The beast hasn't any quick escape, when it's tied in dog chains, or halters, and it had to be to imitate."
 
-Kinner stood up slowly. His eyes darted around the room, and came to rest horribly quivering on a tin bucket in the galley. Slowly, step by step, he retreated toward the door, his mouth opening and closing silently, like a fish out of water.
+Kinner stood up slowly.  His eyes darted around the room, and came to rest horribly quivering on a tin bucket in the galley.  Slowly, step by step, he retreated toward the door, his mouth opening and closing silently, like a fish out of water.
 
-"The milk — " he gasped. "I milked'em an hour ago — " His voice broke into a scream as he dived through the door. He was out on the ice cap without windproof or heavy clothing.
+"The milk - " he gasped.  "I milked'em an hour ago - "  His voice broke into a scream as he dived through the door.  He was out on the ice cap without windproof or heavy clothing.
 
-Van Wall looked after him for a moment thoughtfully. "He's probably hopelessly mad," he said at length, "but he might be a monster escaping. He hasn't skis. Take a blowtorch — in case."
+Van Wall looked after him for a moment thoughtfully.  "He's probably hopelessly mad," he said at length, "but he might be a monster escaping.  He hasn't skis.  Take a blowtorch - in case."
 
-The physical motion of the chase helped them; something that needed doing. Three of the other men were quietly being sick. Norris was lying flat on his back, his face greenish, looking steadily at the bottom of the bunk above him.
+The physical motion of the chase helped them; something that needed doing.  Three of the other men were quietly being sick.  Norris was lying flat on his back, his face greenish, looking steadily at the bottom of the bunk above him.
 
-"Mac, how long have the — cows been not-cows — "
+"Mac, how long have the - cows been not-cows - "
 
-McReady shrugged his shoulders hopelessly. He went over to the milk bucket, and with his little tube of serum went to work on it. The milk clouded it, making certainty difficult. Finally he dropped the test-tube in the stand and shook his head. "It tests negatively. Which means either they were cows then, or that, being perfect imitations, they gave perfectly good milk."
+McReady shrugged his shoulders hopelessly.  He went over to the milk bucket, and with his little tube of serum went to work on it.  The milk clouded it, making certainty difficult.  Finally he dropped the test-tube in the stand and shook his head.  "It tests negatively.  Which means either they were cows then, or that, being perfect imitations, they gave perfectly good milk."
 
-Copper stirred restless in his sleep and gave a gurgling cross between a snore and a laugh. Silent eyes fastened on him. "Would morphia — a monster — " somebody started to ask.
+Copper stirred restless in his sleep and gave a gurgling cross between a snore and a laugh.  Silent eyes fastened on him.  "Would morphia - a monster - " somebody started to ask.
 
-"Lord knows," McReady shrugged. "It affects every Earthly animal I know of."
+"Lord knows," McReady shrugged.  "It affects every Earthly animal I know of."
 
-Connant suddenly raised his head. "Mac! The dogs must have swallowed pieces of the monster, and the pieces destroyed them! The dogs were where the monster resided. I was locked up. Doesn't that prove — "
+Connant suddenly raised his head.  "Mac!  The dogs must have swallowed pieces of the monster, and the pieces destroyed them!  The dogs were where the monster resided.  I was locked up.  Doesn't that prove - "
 
-Van Wall shook his head. "Sorry. Proves nothing about what you are, only proves what you didn't do."
+Van Wall shook his head.  "Sorry.  Proves nothing about what you are, only proves what you didn't do."
 
-"It doesn't do that," McReady sighed. "We are helpless. Because we don't know enough, and so jittery we don't think straight. Locked up! Ever watch a white corpuscle of the blood go through the wall of a blood vessel? No? It sticks out a pseudopod. And there it is — on the far side of the wall."
+"It doesn't do that," McReady sighed.  "We are helpless.  Because we don't know enough, and so jittery we don't think straight.  Locked up!  Ever watch a white corpuscle of the blood go through the wall of a blood vessel?  No?  It sticks out a pseudopod.  And there it is - on the far side of the wall."
 
-"Oh," said Van Wall unhappily. "The cattle tried to melt down, didn't they? They could have melted down — become just a thread of stuff and leaked under a door to re-collect on the other side. Ropes — no — no, that wouldn't do it. They couldn't live in a sealed tank or — "
+"Oh," said Van Wall unhappily.  "The cattle tried to melt down, didn't they?  They could have melted down - become just a thread of stuff and leaked under a door to re-collect on the other side.  Ropes - no - no, that wouldn't do it.  They couldn't live in a sealed tank or - "
 
-"If," said McReady, "you shoot it through the heart, and it doesn't die, it's a monster. That's the best test I can think of, offhand."
+"If," said McReady, "you shoot it through the heart, and it doesn't die, it's a monster.  That's the best test I can think of, offhand."
 
-"No dogs," said Garry quietly, "and no cattle. It has to imitate men now. And locking up doesn't do any good. Your test might have work, Mac, but I am afraid it would be hard on the men." 
+"No dogs," said Garry quietly, "and no cattle.  It has to imitate men now.  And locking up doesn't do any good.  Your test might have work, Mac, but I am afraid it would be hard on the men."
 
 ## Chapter 10
 Clark looked up from the galley stove as Van Wall, Barclay, McReady and Benning came in, brushing the drift from their clothes. The other men jammed into the Ad Building continued studiously to do as they were doing, playing chess, poker, reading. Ralsen was fixing a sledge on the table; Van and Norris had their heads together over magnetic data, while Harvey read tables in a low voice.

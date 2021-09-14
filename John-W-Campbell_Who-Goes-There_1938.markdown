@@ -526,77 +526,78 @@ Copper laughed.  "What do you think, Garry?  We're confident we can win out.  Bu
 Clark grinned up from the dog he was petting into calmness.  "Confident, did you say, Doc?"
 
 ## Chapter 8
-Blair moved restlessly around the small shack. His eyes jerked and quivered in vague, fleeting glances at the four men with him; Barclay, six feet tall and weighing over 190 pounds; McReady, a bronze giant of a man; Dr. Copper, short, squatly powerful; and Benning, five-feet-ten of wiry strength.
 
-Blair was huddled up against the far wall of the East Cache cabin, his gear piled in the middle of the floor beside the heating stove, forming an island between him and the four men. His bony hands clenched and fluttered, terrified. His pale eyes wavered uneasily as his bald, freckled head darted about in birdlike motion.
+Blair moved restlessly around the small shack.  His eyes jerked and quivered in vague, fleeting glances at the four men with him; Barclay, six feet tall and weighing over 190 pounds; McReady, a bronze giant of a man; Dr. Copper, short, squatly powerful; and Benning, five-feet-ten of wiry strength.
 
-"I don't want anybody coming here. I'll cook my own food," he snapped nervously. "Kinner may be human now, but I don't believe it. I'm going to get out of here, but I'm not going to eat any food you send me. I want cans. Sealed cans."
+Blair was huddled up against the far wall of the East Cache cabin, his gear piled in the middle of the floor beside the heating stove, forming an island between him and the four men.  His bony hands clenched and fluttered, terrified.  His pale eyes wavered uneasily as his bald, freckled head darted about in birdlike motion.
 
-"O.K., Blair, we'll bring'em tonight," Barclay promised. "You've got coal, and the fire's started. I'll make a list" — Barclay started forward.
+"I don't want anybody coming here.  I'll cook my own food," he snapped nervously.  "Kinner may be human now, but I don't believe it.  I'm going to get out of here, but I'm not going to eat any food you send me.  I want cans.  Sealed cans."
 
-Blair instantly scurried to the farthest corner. "Get out! Keep away from me, you monster!" the little biologist shrieked, and tried to claw his way through the wall of the shack. "Keep away from me — keep away — I won't be absorbed — I won't be — "
+"O.K., Blair, we'll bring'em tonight," Barclay promised.  "You've got coal, and the fire's started.  I'll make a list" - Barclay started forward.
 
-Barclay relaxed and moved back. Dr. Copper shook his head. "Leave him alone, Bar. It's easier for him to fix the thing himself. We'll have to fix the door, I think — "
+Blair instantly scurried to the farthest corner.  "Get out!  Keep away from me, you monster!" the little biologist shrieked, and tried to claw his way through the wall of the shack.  "Keep away from me - keep away - I won't be absorbed - I won't be - "
 
-The four men let themselves out. Efficiently, Benning and Barclay fell to work. There were no locks in Antarctica; there wasn't enough privacy to make them needed. But powerful screws had been driven in each side of the door frame, and the spare aviation control cable, immensely strong, woven steel wire, was rapidly caught between them, and drawn taut. Barclay went to work with a drill and a keyhole saw. Presently he had a trap cut in the door through which goods could be passed without unlashing the entrance. Three powerful hinges from a stock-crate, two hasps and a pair of three-inch cotter-pins made it proof against opening from the other side.
+Barclay relaxed and moved back.  Dr. Copper shook his head.  "Leave him alone, Bar.  It's easier for him to fix the thing himself.  We'll have to fix the door, I think - "
 
-Blair moved about restlessly inside. He was dragging something over to the door with panting gasps and muttering, frantic curses. Barclay opened the hatch and glanced in, Dr. Copper peering over his shoulder. Blair had moved the heavy bunk against the door. It could not be opened without his cooperation now.
+The four men let themselves out.  Efficiently, Benning and Barclay fell to work.  There were no locks in Antarctica; there wasn't enough privacy to make them needed.  But powerful screws had been driven in each side of the door frame, and the spare aviation control cable, immensely strong, woven steel wire, was rapidly caught between them, and drawn taut.  Barclay went to work with a drill and a keyhole saw.  Presently he had a trap cut in the door through which goods could be passed without unlashing the entrance.  Three powerful hinges from a stock-crate, two hasps and a pair of three-inch cotter-pins made it proof against opening from the other side.
 
-"Don't know but what the poor man's fight at that," McReady sighed. "If he gets loose, it is his avowed intention to kill each and all of us as quickly as possible, which is something we don't agree with. But we've something on our side of that door that is worse than a homicidal maniac. If one or the other has to get loose, I think I'll come up and undo those lashings here."
+Blair moved about restlessly inside.  He was dragging something over to the door with panting gasps and muttering, frantic curses.  Barclay opened the hatch and glanced in, Dr. Copper peering over his shoulder.  Blair had moved the heavy bunk against the door.  It could not be opened without his cooperation now.
 
-Barclay grinned. "You let me know, and I'll show you how to get these off fast. Let's go back."
+"Don't know but what the poor man's fight at that," McReady sighed.  "If he gets loose, it is his avowed intention to kill each and all of us as quickly as possible, which is something we don't agree with.  But we've something on our side of that door that is worse than a homicidal maniac.  If one or the other has to get loose, I think I'll come up and undo those lashings here."
 
-The sun was painting the northern horizon in multi-colored rainbows still, though it was two hours below the horizon. The field of drift swept off to the north, sparkling under its flaming colors in a million reflected glories. Low mounds of rounded white on the northern horizon showed the Magnet Range was barely awash above the sweeping drift. Little eddies of wind-lifted snow swirled away from their skis as they set out toward the main encampment two miles away. The spidery finger of the broadcast radiator lifted a gaunt black needle against the white of the Antarctic continent. The snow under their skies was like fine sand, hard and gritty.
+Barclay grinned.  "You let me know, and I'll show you how to get these off fast.  Let's go back."
 
-"Spring," said Benning bitterly, "is come. Ain't we got fun! I've been looking forward to getting away from this blasted hole in the ice."
+The sun was painting the northern horizon in multi-colored rainbows still, though it was two hours below the horizon.  The field of drift swept off to the north, sparkling under its flaming colors in a million reflected glories.  Low mounds of rounded white on the northern horizon showed the Magnet Range was barely awash above the sweeping drift.  Little eddies of wind-lifted snow swirled away from their skis as they set out toward the main encampment two miles away.  The spidery finger of the broadcast radiator lifted a gaunt black needle against the white of the Antarctic continent.  The snow under their skies was like fine sand, hard and gritty.
 
-"I wouldn't try it now, if I were you." Barclay grunted. "Guys that set out from here in the next few days are going to be marvelously unpopular."
+"Spring," said Benning bitterly, "is come.  Ain't we got fun!  I've been looking forward to getting away from this blasted hole in the ice."
 
-"How is your dog getting along, Dr. Copper?" McReady asked. "Any results yet?"
+"I wouldn't try it now, if I were you."  Barclay grunted.  "Guys that set out from here in the next few days are going to be marvelously unpopular."
 
-"In 30 hours? I wish there were. I gave him an injection of my blood today. But I imagine another five days will be needed. I don't know certainly enough to stop sooner."
+"How is your dog getting along, Dr. Copper?" McReady asked.  "Any results yet?"
 
-"I've been wondering — if Connant were — changed, would he have warned us so soon after the animal escaped? Wouldn't he have waited long enough for it to have a real chance to fix itself? Unless we woke up naturally?" McReady asked slowly.
+"In 30 hours?  I wish there were.  I gave him an injection of my blood today.  But I imagine another five days will be needed.  I don't know certainly enough to stop sooner."
 
-"The thing is selfish. You didn't think it looked as though it were possessed of a store of the higher justices, did you?" Dr. Copper pointed out. "Every part of it is all of it, every part of it is all for itself, I imagine. If Connant were changed, to save his skin, he'd have to — but Connant's feelings aren't changed; they're imitated perfectly, or they're his own. Naturally, the imitation, imitating perfectly Connant's feelings, would do exactly what Connant would do."
+"I've been wondering - if Connant were - changed, would he have warned us so soon after the animal escaped?  Wouldn't he have waited long enough for it to have a real chance to fix itself?  Unless we woke up naturally?" McReady asked slowly.
 
-"Say, couldn't Norris or Van give Connant some kind of a test? If the thing is brighter than men, it might know more physics than Connant should, and they'd catch it out," Barclay suggested.
+"The thing is selfish.  You didn't think it looked as though it were possessed of a store of the higher justices, did you?" Dr. Copper pointed out.  "Every part of it is all of it, every part of it is all for itself, I imagine.  If Connant were changed, to save his skin, he'd have to - but Connant's feelings aren't changed; they're imitated perfectly, or they're his own.  Naturally, the imitation, imitating perfectly Connant's feelings, would do exactly what Connant would do."
 
-Copper shook his head wearily. "Not if it reads minds. You can't plan a trap for it. Van suggested that last night. He hoped it would answer some of the questions of physics he'd like to know answers to."
+"Say, couldn't Norris or Van give Connant some kind of a test?  If the thing is brighter than men, it might know more physics than Connant should, and they'd catch it out," Barclay suggested.
 
-"This expedition-of-four idea is going to make life happy." Benning looked at his companions. "Each of us with an eye on the others to make sure he doesn't do something — peculiar. Man, aren't we going to be a trusting bunch! Each man eyeing his neighbors with the grandest exhibition of faith and trust — I'm beginning to know what Connant meant by 'I wish you could see your eyes.' Every now and then we all have it, I guess. One of you looks around with a sort of 'I-wonder-if-the-other-_three_-are-look.' Incidentally, I'm not excepting myself."
+Copper shook his head wearily.  "Not if it reads minds.  You can't plan a trap for it.  Van suggested that last night.  He hoped it would answer some of the questions of physics he'd like to know answers to."
 
-"So far as we know, the animal is dead, with a slight question as to Connant. No other is suspected," McReady stated slowly. "The 'always-four' order is merely a precautionary measure."
+"This expedition-of-four idea is going to make life happy."  Benning looked at his companions.  "Each of us with an eye on the others to make sure he doesn't do something - peculiar.  Man, aren't we going to be a trusting bunch!  Each man eyeing his neighbors with the grandest exhibition of faith and trust - I'm beginning to know what Connant meant by 'I wish you could see your eyes.'  Every now and then we all have it, I guess.  One of you looks around with a sort of 'I-wonder-if-the-other-_three_-are-look.'  Incidentally, I'm not excepting myself."
 
-"I'm waiting for Garry to make it four-in-a-bunk," Barclay sighed. "I thought I didn't have any privacy before, but since that order — "
+"So far as we know, the animal is dead, with a slight question as to Connant.  No other is suspected," McReady stated slowly.  "The 'always-four' order is merely a precautionary measure."
 
-None watched more tensely than Connant. A little sterile glass test-tube, half-filled with straw-colored fluid. One-two-three-four-five drops of the clear solution Dr. Copper had prepared from the drops of blood from Connant's arm. The tube was shaken carefully, then set in a beaker of clear, warm water. The thermometer read blood heat, a little thermostat clicked noisily, and the electric hotplate began to glow as the lights flickered slightly.
+"I'm waiting for Garry to make it four-in-a-bunk," Barclay sighed.  "I thought I didn't have any privacy before, but since that order - "
 
-Then — little white flecks of precipitation were forming, snowing down in the clear straw-colored fluid. "Lord," said Connant. He dropped heavily into a bunk, crying like a baby. "Six days — " Connant sobbed, "six days in there — wondering if that damned test would lie — "
+None watched more tensely than Connant.  A little sterile glass test-tube, half-filled with straw-colored fluid.  One-two-three-four-five drops of the clear solution Dr. Copper had prepared from the drops of blood from Connant's arm.  The tube was shaken carefully, then set in a beaker of clear, warm water.  The thermometer read blood heat, a little thermostat clicked noisily, and the electric hotplate began to glow as the lights flickered slightly.
+
+Then - little white flecks of precipitation were forming, snowing down in the clear straw-colored fluid.  "Lord," said Connant.  He dropped heavily into a bunk, crying like a baby.  "Six days - " Connant sobbed, "six days in there - wondering if that damned test would lie - "
 
 Garry moved over silently, and slipped his arm across the physicist's back.
 
-"It couldn't lie," Dr. Copper said, "The dog was human-immune — and the serum reacted."
+"It couldn't lie," Dr. Copper said, "The dog was human-immune - and the serum reacted."
 
-"He's — all right?" Norris gasped. "Then — the animal is dead — dead forever?"
+"He's - all right?" Norris gasped.  "Then - the animal is dead - dead forever?"
 
 "He is human," Copper spoke definitely, "and the animal is dead."
 
-Kinner burst out laughing, laughing hysterically: McReady turned toward him and slapped his face with a methodical one-two, one-two action. The cook laughed, gulped, cried a moment, and sat up rubbing his checks, mumbling his thanks vaguely. "I was scared. Lord, I was scared — "
+Kinner burst out laughing, laughing hysterically: McReady turned toward him and slapped his face with a methodical one-two, one-two action.  The cook laughed, gulped, cried a moment, and sat up rubbing his checks, mumbling his thanks vaguely.  "I was scared.  Lord, I was scared - "
 
-Norris laughed bitterly. "You think we weren't, you ape? You think maybe Connant wasn't?"
+Norris laughed bitterly.  "You think we weren't, you ape?  You think maybe Connant wasn't?"
 
-The Ad Building stirred with a sudden rejuvenation. Voices laughed, the men clustering around Connant spoke with unnecessarily loud voices, jittery, nervous voices relievedly friendly again. Somebody called out a suggestion, and a dozen started for their skis. Blair. Blair might recover — Dr. Copper fussed with his test-tubes in nervous relief, trying solutions. The party of relief for Blair's shack started out the door, skis clapping noisily. Down the corridor, the dogs set up a quick yelping howl as the air of excited relief reached them.
+The Ad Building stirred with a sudden rejuvenation.  Voices laughed, the men clustering around Connant spoke with unnecessarily loud voices, jittery, nervous voices relievedly friendly again.  Somebody called out a suggestion, and a dozen started for their skis.  Blair.  Blair might recover - Dr. Copper fussed with his test-tubes in nervous relief, trying solutions.  The party of relief for Blair's shack started out the door, skis clapping noisily.  Down the corridor, the dogs set up a quick yelping howl as the air of excited relief reached them.
 
-Dr. Copper fussed with his tubes. McReady noticed him first, sitting on the edge of the bunk, with two precipitin-whitened test-tubes of straw-colored fluid, his face whiter than the stuff in the tubes, silent tears slipping down from horror-widened eyes.
+Dr. Copper fussed with his tubes.  McReady noticed him first, sitting on the edge of the bunk, with two precipitin-whitened test-tubes of straw-colored fluid, his face whiter than the stuff in the tubes, silent tears slipping down from horror-widened eyes.
 
-McReady felt a cold knife of fear pierce through his heart and freeze in his breast. Dr. Copper looked up.
+McReady felt a cold knife of fear pierce through his heart and freeze in his breast.  Dr. Copper looked up.
 
-"Garry," he called hoarsely. "Garry, for God's sake, come here."
+"Garry," he called hoarsely.  "Garry, for God's sake, come here."
 
-Commander Garry walked toward him sharply. Silence clapped down on the Ad Building. Connant looked up, rose stiffly from his seat.
+Commander Garry walked toward him sharply.  Silence clapped down on the Ad Building.  Connant looked up, rose stiffly from his seat.
 
-"Garry — tissue from the monster — precipitates too. It proves nothing. Nothing but — but the dog was monster-immune too. That one of the two contributing blood — one of us two, you and I, Garry — _one of us is a monster_." 
+"Garry - tissue from the monster - precipitates too.  It proves nothing.  Nothing but - but the dog was monster-immune too.  That one of the two contributing blood - one of us two, you and I, Garry — _one of us is a monster_."
 
 ## Chapter 9
 "Bar, call back those men before they tell Blair," McReady said quietly. Blair went to the door; faintly his shouts came back to the tensely silent men in the room. Then he was back.

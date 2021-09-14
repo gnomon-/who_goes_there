@@ -310,83 +310,84 @@ Barclay leapt forward and jabbed.  A weird, shrill scream rose and choked out.  
 The red eyes clouded over in a stiffening, jerking travesty of a face.  Armlike, leglike members quivered and jerked.  The dogs leapt forward, and Barclay yanked back his shovel-handled weapon.  The thing on the snow did not move as gleaming teeth ripped it open.
 
 ## Chapter 6
-Garry looked about the crowded room. Thirty-two men, some tensed nervously standing against the wall, some uneasily relaxed, some sitting, most perforce standing, as intimate as sardines. Thirty-two, plus the five engaged in sewing up wounded dogs, made thirty- seven, the total personnel.
 
-Garry started speaking. "All right, I guess we're here. Some of you — three or four at most — saw what happened. All of you have seen that thing on the table, and can get a general idea. Anyone hasn't, I'll lift — " His hand strayed to the tarpaulin bulking over the thing on the table. There was an acrid odor of singed flesh seeping out of it. The men, stirred restlessly, hasty denials.
+Garry looked about the crowded room.  Thirty-two men, some tensed nervously standing against the wall, some uneasily relaxed, some sitting, most perforce standing, as intimate as sardines.  Thirty-two, plus the five engaged in sewing up wounded dogs, made thirty-seven, the total personnel.
 
-"It looks rather as though Charnauk isn't going to lead any more teams," Garry went on. "Blair wants to get at this thing, and make some more detailed examination. We want to know what happened, and make sure right now that this is permanently, totally dead. Right?"
+Garry started speaking.  "All right, I guess we're here.  Some of you - three or four at most - saw what happened.  All of you have seen that thing on the table, and can get a general idea.  Anyone hasn't, I'll lift - "  His hand strayed to the tarpaulin bulking over the thing on the table.  There was an acrid odor of singed flesh seeping out of it.  The men, stirred restlessly, hasty denials.
 
-Connant grinned. "Anybody that doesn't agree can sit up with it tonight."
+"It looks rather as though Charnauk isn't going to lead any more teams," Garry went on.  "Blair wants to get at this thing, and make some more detailed examination.  We want to know what happened, and make sure right now that this is permanently, totally dead.  Right?"
 
-"All right then, Blair, what can you say about it? What was it?" Garry turned to the little biologist.
+Connant grinned.  "Anybody that doesn't agree can sit up with it tonight."
 
-"I wonder if we ever saw its natural form." Blair looked at the covered mass. "It may have been imitating the beings that built that ship — but I don't think it was. I think that was its true form. Those of us who were up near the bend saw the thing in action; the thing on the table is the result. When it got loose, apparently, it started looking around. Antarctica still frozen as it was ages ago when the creature first saw it — and froze. From my observations while it was thawing out, and the bits of tissue I cut and hardened then, I think it was native to a hotter planet than Earth. It couldn't, in its natural form, stand the temperature. There is no life-form on Earth that can live in Antarctica during the winter, but the best compromise is the dog. It found the dogs, and somehow got near enough to Charnauk to get him. The others smelled it — heard it — I don't know — anyway they went wild, and broke chains, and attacked it before it was finished. The thing we found was part Charnauk, queerly only half-dead, part Charnauk half-digested by the jellylike protoplasm of that creature, and part the remains of the thing we originally found, sort of melted down to the basic protoplasm.
+"All right then, Blair, what can you say about it?  What was it?"  Garry turned to the little biologist.
 
-"When the dogs attacked it, it turned — into the best fighting thing it could think of. Some other-world beast apparently."
+"I wonder if we ever saw its natural form."  Blair looked at the covered mass.  "It may have been imitating the beings that built that ship - but I don't think it was.  I think that was its true form.  Those of us who were up near the bend saw the thing in action; the thing on the table is the result.  When it got loose, apparently, it started looking around.  Antarctica still frozen as it was ages ago when the creature first saw it - and froze.  From my observations while it was thawing out, and the bits of tissue I cut and hardened then, I think it was native to a hotter planet than Earth.  It couldn't, in its natural form, stand the temperature.  There is no life-form on Earth that can live in Antarctica during the winter, but the best compromise is the dog.  It found the dogs, and somehow got near enough to Charnauk to get him.  The others smelled it - heard it - I don't know - anyway they went wild, and broke chains, and attacked it before it was finished.  The thing we found was part Charnauk, queerly only half-dead, part Charnauk half-digested by the jellylike protoplasm of that creature, and part the remains of the thing we originally found, sort of melted down to the basic protoplasm.
 
-"Turned," snapped Garry. "How?"
+"When the dogs attacked it, it turned - into the best fighting thing it could think of.  Some other-world beast apparently."
 
-"Every living thing is made up of jelly — protoplasm and minute, submicroscopic things called nuclei, which control the bulk, the protoplasm. This thing was just a modification of that same worldwide plan of Nature; cells made up of protoplasm, controlled by infinitely tinier nuclei. You physicists might compare it — an individual cell of any living thing — with an atom; the bulk of the atom, the space-filling part, is made up of the electron orbits, but the character of the thing is determined by the atomic nucleus.
+"Turned," snapped Garry.  "How?"
 
-"This isn't wildly beyond what we already know. It's just a modification we haven't seen before. It's as natural, as logical, as any other manifestation of life. It obeys exactly the same laws. The cells are made of protoplasm, their character determined by the nucleus.
+"Every living thing is made up of jelly - protoplasm and minute, submicroscopic things called nuclei, which control the bulk, the protoplasm.  This thing was just a modification of that same worldwide plan of Nature; cells made up of protoplasm, controlled by infinitely tinier nuclei.  You physicists might compare it - an individual cell of any living thing - with an atom; the bulk of the atom, the space-filling part, is made up of the electron orbits, but the character of the thing is determined by the atomic nucleus.
 
-"Only in this creature, the cell-nuclei can control those cells at _will_. It digested Charnauk, and as it digested, studied every cell of his tissue, and shaped its own cells to imitate them exactly. Parts of it — parts that had time to finish changing — are dog-cells. But they don't have dog-cell nuclei." Blair lifted a fraction of the tarpaulin. A torn dog's leg with stiff gray fur protruded. "That, for instance, isn't dog at all; it's imitation. Some parts I'm certain about; the nucleus was hiding itself, covering up with dog-cell imitation nucleus. In time, not even a microscope would have shown the difference."
+"This isn't wildly beyond what we already know.  It's just a modification we haven't seen before.  It's as natural, as logical, as any other manifestation of life.  It obeys exactly the same laws.  The cells are made of protoplasm, their character determined by the nucleus.
+
+"Only in this creature, the cell-nuclei can control those cells at _will_.  It digested Charnauk, and as it digested, studied every cell of his tissue, and shaped its own cells to imitate them exactly.  Parts of it - parts that had time to finish changing - are dog-cells.  But they don't have dog-cell nuclei."  Blair lifted a fraction of the tarpaulin.  A torn dog's leg with stiff gray fur protruded.  "That, for instance, isn't dog at all; it's imitation.  Some parts I'm certain about; the nucleus was hiding itself, covering up with dog-cell imitation nucleus.  In time, not even a microscope would have shown the difference."
 
 "Suppose," asked Norris bitterly, "it had had lots of time?"
 
-"Then it would have been a dog. The other dogs would have accepted it. We would have accepted it. I don't think anything would have distinguished it, not microscope, nor X-ray, nor any other means. This is a member of a supremely intelligent race, a race that has learned the deepest secrets of biology, and turned them to its use."
+"Then it would have been a dog.  The other dogs would have accepted it.  We would have accepted it.  I don't think anything would have distinguished it, not microscope, nor X-ray, nor any other means.  This is a member of a supremely intelligent race, a race that has learned the deepest secrets of biology, and turned them to its use."
 
 "What was it planning to do?" Barclay looked at the humped tarpaulin.
 
-Blair grinned unpleasantly. The wavering halo of thin hair round his bald pate wavered in the stir of air. "Take over the world, I imagine."
+Blair grinned unpleasantly.  The wavering halo of thin hair round his bald pate wavered in the stir of air.  "Take over the world, I imagine."
 
-"Take over the world! Just it, all by itself?" Connant gasped. "Set itself up as a lone dictator?"
+"Take over the world!  Just it, all by itself?" Connant gasped.  "Set itself up as a lone dictator?"
 
-"No," Blair shook his head. The scalpel he had been fumbling in his bony fingers dropped; he bent to pick it up, so that his face was hidden as he spoke. "It would become the population of the world."
+"No," Blair shook his head.  The scalpel he had been fumbling in his bony fingers dropped; he bent to pick it up, so that his face was hidden as he spoke.  "It would become the population of the world."
 
-"Become — populate the world? Does it reproduce aasexually?"
+"Become - populate the world?  Does it reproduce asexually?"
 
-Blair shook his head and gulped. "It's — it doesn't have to. It weighed 85 pounds. Charnauk weighed about 90. It would have become Charnauk, and had 85 pounds left, to become — oh, Jack for instance, or Chinook. It can imitate anything — that is, become anything. If it had reached the Antarctic Sea, it would have become a seal, maybe two seals. They might have attacked a killer whale, and become either killers, or a herd of seals. Or maybe it would have caught an albatross, or a skua gull, and flown to South America."
+Blair shook his head and gulped.  "It's - it doesn't have to.  It weighed 85 pounds.  Charnauk weighed about 90.  It would have become Charnauk, and had 85 pounds left, to become - oh, Jack for instance, or Chinook.  It can imitate anything - that is, become anything.  If it had reached the Antarctic Sea, it would have become a seal, maybe two seals.  They might have attacked a killer whale, and become either killers, or a herd of seals.  Or maybe it would have caught an albatross, or a skua gull, and flown to South America."
 
-Norris cursed softly. "And every time, it digested something, and imitated it — "
+Norris cursed softly.  "And every time, it digested something, and imitated it - "
 
-"It would have had its original bulk left, to start again," Blair finished. "Nothing would kill it. It has no natural enemies, because it becomes whatever it wants to. If a killer whale attacked, it would become a killer whale. If it was an albatross, and an eagle attacked it, it would become an eagle. Lord, it might become a female eagle. Go back — build a nest and lay eggs!"
+"It would have had its original bulk left, to start again," Blair finished.  "Nothing would kill it.  It has no natural enemies, because it becomes whatever it wants to.  If a killer whale attacked, it would become a killer whale.  If it was an albatross, and an eagle attacked it, it would become an eagle.  Lord, it might become a female eagle.  Go back - build a nest and lay eggs!"
 
 "Are you sure that thing from hell is dead?" Dr. Copper asked softly.
 
-"Yes, thank Heaven," the little biologist gasped. "After they drove the dogs off, I stood there poking Bar's electrocution thing into it for five minutes. It's dead and — cooked."
+"Yes, thank Heaven," the little biologist gasped.  "After they drove the dogs off, I stood there poking Bar's electrocution thing into it for five minutes.  It's dead and - cooked."
 
 "Then we can only give thanks that this is Antarctica, where there is not one, single, solitary, living thing for it to imitate, except these animals in camp."
 
-"Us," Blair giggled. "It can imitate us. Dogs can't make 400 miles to the sea; there's no food. There aren't any skua gulls to imitate at this season. There aren't any Penguins this far inland. There's nothing that can reach the sea from this point — except us. We've got the brains. We can do it. Don't you see — _it's got to imitate us_ — _it's got to be one of us_ — _that's the only way it can fly an airplane_ — _fly a plane for two hours, and rule_ — _be_ — _all Earth's inhabitants_. A world for the taking — _if it imitates us_!
+"Us," Blair giggled.  "It can imitate us.  Dogs can't make 400 miles to the sea; there's no food.  There aren't any skua gulls to imitate at this season.  There aren't any Penguins this far inland.  There's nothing that can reach the sea from this point - except us.  We've got the brains.  We can do it.  Don't you see - _it's got to imitate us_ - _it's got to be one of us_ - _that's the only way it can fly an airplane_ - _fly a plane for two hours, and rule_ - _be_ - _all Earth's inhabitants_.  A world for the taking - _if it imitates us_!
 
-"It didn't know yet. It hadn't had a chance to learn. It was rushed — hurried — look the thing nearest its own size. Look — I'm Pandora! I opened the box! And the only hope that can come out is — That nothing can come out. You didn't see me. I did It. I fixed it I smashed every magneto. Not a plane can fly. Nothing can fly." Blair giggled and lay down on the floor crying.
+"It didn't know yet.  It hadn't had a chance to learn.  It was rushed - hurried - took the thing nearest its own size.  Look - I'm Pandora!  I opened the box!  And the only hope that can come out is - That nothing can come out.  You didn't see me.  I did it.  I fixed it.  I smashed every magneto.  Not a plane can fly.  Nothing can fly."  Blair giggled and lay down on the floor crying.
 
-Chief Pilot Van Wall made a dive for the door. His feet were fading echoes in the corridors as Dr. Copper bent unhurriedly over the little man on the floor. From his office at the end of the room he brought something, and injected a solution into Blair's arm. "He might come out of it when he wakes up," he sighed rising. McReady helped him lift the biologist onto a near-by bunk. "It all depends on whether we can convince him that thing is dead."
+Chief Pilot Van Wall made a dive for the door.  His feet were fading echoes in the corridors as Dr. Copper bent unhurriedly over the little man on the floor.  From his office at the end of the room he brought something, and injected a solution into Blair's arm.  "He might come out of it when he wakes up," he sighed rising.  McReady helped him lift the biologist onto a near-by bunk.  "It all depends on whether we can convince him that thing is dead."
 
-Van Wall ducked into the shack brushing his heavy blond beard absently. "I didn't think a biologist would do a thing like that up thoroughly. He missed the spares in the second cache. It's all right. I smashed them."
+Van Wall ducked into the shack brushing his heavy blond beard absently.  "I didn't think a biologist would do a thing like that up thoroughly.  He missed the spares in the second cache.  It's all right.  I smashed them."
 
-Commander Garry nodded. "I was wondering about the radio."
+Commander Garry nodded.  "I was wondering about the radio."
 
-Dr. Copper snorted. "You don't think it can leak out on a radio wave, do you? You'd have five rescue attempts in the next three months if you stop the broadcasts. The thing to do is talk loud and not make a sound. Now I wonder — "
+Dr. Copper snorted.  "You don't think it can leak out on a radio wave, do you?  You'd have five rescue attempts in the next three months if you stop the broadcasts.  The thing to do is talk loud and not make a sound.  Now I wonder - "
 
-McReady looked speculatively at the doctor. "It might be like an infectious disease. Everything that drank, any of its blood — "
+McReady looked speculatively at the doctor.  "It might be like an infectious disease.  Everything that drank, any of its blood - "
 
-Copper shook his head. "Blair missed something. Imitate it may, but it has, to a certain extent, its own body-chemistry, its own metabolism. If it didn't it would become a dog — and be a dog and nothing more. It has to be an imitation dog. Therefore you can detect it by serum tests. And its chemistry, since it comes from another world. Must be so wholly, radically different that a few cells, such as gained by drops of blood, would be treated as disease germs by the dog, or human body."
+Copper shook his head.  "Blair missed something.  Imitate it may, but it has, to a certain extent, its own body-chemistry, its own metabolism.  If it didn't it would become a dog - and be a dog and nothing more.  It has to be an imitation dog.  Therefore you can detect it by serum tests.  And its chemistry, since it comes from another world.  Must be so wholly, radically different that a few cells, such as gained by drops of blood, would be treated as disease germs by the dog, or human body."
 
-"Blood — would one of those imitations bleed?" Norris demanded.
+"Blood - would one of those imitations bleed?" Norris demanded.
 
-"Surely. Nothing mystic about blood. Muscle is about 90 per cent water; blood differs only in having-a-couple per cent more water, and less connective tissue. They'd bleed all right," Copper assured him.
+"Surely.  Nothing mystic about blood.  Muscle is about 90 per cent water; blood differs only in having-a-couple per cent more water, and less connective tissue.  They'd bleed all right," Copper assured him.
 
-Blair sat up in his bunk suddenly. "Connant — where's Connant?"
+Blair sat up in his bunk suddenly.  "Connant - where's Connant?"
 
-The physicist moved over toward the little biologist. "Here I am. What do you want?"
+The physicist moved over toward the little biologist.  "Here I am.  What do you want?"
 
-"Are You?" giggled Blair. He lapsed back into the bunk contorted with silent laughter.
+"Are You?" giggled Blair.  He lapsed back into the bunk contorted with silent laughter.
 
-Connant looked at him blankly "Huh? Am I what?"
+Connant looked at him blankly.  "Huh?  Am I what?"
 
-"_Are_ you there?" Blair burst into gales of laughter. "_Are_ you Connant? The beast wanted to be a _man_ — not a dog — " 
+"_Are_ you there?"  Blair burst into gales of laughter.  "_Are_ you Connant?  The beast wanted to be a _man_ - not a dog - "
 
 ## Chapter 7
 Dr. Copper rose wearily from the bunk, and washed the hypodermic carefully. The little tinkles it made seemed loud in the packed room, now that Blair's gurgling laughter had finally quieted. Copper looked toward Garry and shook his head slowly. "Hopeless, I'm afraid. I don't think we can ever convince him the thing is dead now."
